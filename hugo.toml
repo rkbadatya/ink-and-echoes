@@ -1,4 +1,4 @@
-baseURL = "https://blogg.pages.dev/"
+baseURL = "https://ink-and-echoes.rkb.workers.dev/"
 languageCode = "en-us"
 title = "Ink & Echoes"
 buildDrafts = false
