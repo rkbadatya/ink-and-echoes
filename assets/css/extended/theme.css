@@ -1,0 +1,132 @@
+:root {
+  --accent: #ffc078;
+  --accent-light: #e8590c;
+  --theme: #faf7f4 !important;
+  --entry: #f5f0eb !important;
+  --primary: #2c2421 !important;
+  --secondary: #7a706a !important;
+  --tertiary: #f0ebe5 !important;
+  --content: #3a3230 !important;
+  --code-bg: #f0ebe5 !important;
+  --border: #f0c8a0 !important;
+}
+
+:root[data-theme="dark"] {
+  --theme: #161314 !important;
+  --entry: #1e1a1b !important;
+  --primary: #e0dbd5 !important;
+  --secondary: #9a9490 !important;
+  --tertiary: #2a2425 !important;
+  --content: #ddd8d2 !important;
+  --code-bg: #1e1a1b !important;
+  --border: #2a2425 !important;
+}
+
+.post-title,
+.entry-header h2 {
+  color: var(--accent-light);
+}
+
+[data-theme="dark"] .post-title,
+[data-theme="dark"] .entry-header h2 {
+  color: var(--accent);
+}
+
+a {
+  color: var(--accent-light);
+}
+
+[data-theme="dark"] a {
+  color: var(--accent);
+}
+
+.logo a,
+[data-theme="dark"] .logo a {
+  color: var(--primary);
+}
+
+.post-content {
+  line-height: 1.85;
+  font-size: 1.05rem;
+  text-align: justify;
+}
+
+.post-content p {
+  margin-block: 1.5em;
+}
+
+.post-title {
+  font-weight: 800;
+  letter-spacing: -0.02em;
+}
+
+.post-content h2,
+.post-content h3,
+.post-content h4 {
+  margin-top: 2.5em;
+  margin-bottom: 0.8em;
+}
+
+.post-tags a {
+  background: var(--tertiary);
+  border-radius: 999px;
+  padding: 0.3em 0.9em;
+  font-size: 0.85rem;
+}
+
+.post-content blockquote {
+  border-left: 3px solid var(--accent);
+  padding-left: 1em;
+  color: var(--secondary);
+  font-style: italic;
+}
+
+.post-content pre {
+  border-radius: 8px;
+  padding: 1rem;
+}
+
+footer {
+  color: var(--secondary);
+}
+
+
+.post-entry {
+  border: 1px solid var(--border);
+}
+
+.pagination a,
+.paginav a {
+  color: var(--primary) !important;
+  background: var(--tertiary);
+  border: 1px solid var(--border);
+  border-radius: 6px;
+  padding: 0.5em 1.2em;
+  font-weight: 600;
+}
+
+.pagination a:hover,
+.paginav a:hover {
+  background: var(--accent-light);
+  color: #fff !important;
+  border-color: var(--accent-light);
+}
+
+[data-theme="dark"] .pagination a:hover,
+[data-theme="dark"] .paginav a:hover {
+  background: var(--accent);
+  color: #161314 !important;
+  border-color: var(--accent);
+}
+
+.paginav .prev,
+.paginav .next {
+  background: var(--tertiary);
+  border: 1px solid var(--border);
+  border-radius: 6px;
+}
+
+.paginav a:link,
+.paginav a:visited {
+  color: var(--primary) !important;
+}
