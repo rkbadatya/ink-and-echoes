@@ -22,14 +22,16 @@
   --border: #2a2425 !important;
 }
 
-.post-title,
 .entry-header h2 {
-  color: var(--accent-light);
+  color: #d4622b;
 }
 
-[data-theme="dark"] .post-title,
 [data-theme="dark"] .entry-header h2 {
-  color: var(--accent);
+  color: #f0a060;
+}
+
+.post-single .post-title {
+  color: var(--primary);
 }
 
 a {
@@ -48,7 +50,7 @@ a {
 .post-content {
   line-height: 1.85;
   font-size: 1.05rem;
-  text-align: justify;
+  text-align: left;
 }
 
 .post-content p {
