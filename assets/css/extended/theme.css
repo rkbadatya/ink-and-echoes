@@ -90,6 +90,35 @@ footer {
   color: var(--secondary);
 }
 
+.post-single .post-header {
+  text-align: center;
+}
+
+.post-single .post-header {
+  display: flex;
+  flex-direction: column;
+  align-items: center;
+}
+
+.back-to-home {
+  margin-bottom: 1.5em;
+}
+
+.back-to-home a {
+  color: var(--secondary);
+  font-size: 0.9rem;
+  text-decoration: none;
+  transition: color 0.2s;
+}
+
+.back-to-home a:hover {
+  color: var(--accent-light);
+}
+
+[data-theme="dark"] .back-to-home a:hover {
+  color: var(--accent);
+}
+
 
 .post-entry {
   border: 1px solid var(--border);
