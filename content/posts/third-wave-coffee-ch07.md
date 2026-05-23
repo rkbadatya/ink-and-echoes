@@ -8,7 +8,7 @@ categories:
 draft: false
 ---
 
-After wandering around the electronics stores for some time, we eventually returned to the café again.
+After wandering around the electronics stores for some time, we eventually ended up inside Crossword Bookstore.
 
 By then, the day had already stretched far longer than any interaction we had previously shared.
 
@@ -24,25 +24,21 @@ And somehow neither of us had felt the need to leave.
 
 That realization stayed quietly in the background of my mind.
 
-We settled back into our seats.
+Inside the bookstore, the atmosphere changed completely from the noisy café outside. People moved slowly between shelves. Conversations became softer. Time itself seemed slower there.
 
-She resumed working occasionally between conversations, while I drifted between watching people, checking my phone, pretending to focus on things, and mostly just observing her existence beside me.
+She naturally drifted toward the fantasy section and picked up a Harry Potter book.
 
-The strange thing about attraction is that it slowly transforms ordinary behaviors into memorable scenes.
+And somehow that started another long conversation.
 
-The way someone adjusts their hair while reading.
+Characters.
 
-The way they stare at a screen while thinking.
+Favorite moments.
 
-The way they pause before replying.
+Opinions about different parts of the story.
 
-None of it means anything.
+The kind of conversation that doesn’t change your life but quietly makes you feel closer to someone while it’s happening.
 
-Yet all of it starts feeling important.
-
-At some point, we started talking about books.
-
-That was one of the few areas where our interests naturally overlapped.
+Books were one of the few places where our interests genuinely overlapped.
 
 Most of our personalities were actually very different.
 
@@ -50,19 +46,17 @@ She liked things I usually ignored.
 
 I liked things she didn’t particularly care about.
 
-But books created temporary common ground between us.
+At one point I mentioned anime.
 
-From there the conversation somehow drifted toward Harry Potter.
+She immediately said she wasn’t into it at all.
 
-Opinions.
+Another difference.
 
-Characters.
+And strangely, by then, I had already started mentally collecting those differences between us like observations that mattered more than they should.
 
-Random memories connected to reading.
+Maybe because attraction makes even incompatibility feel interesting in the beginning.
 
-The kind of conversation that doesn’t change your life but quietly makes you feel closer to someone while it’s happening.
-
-At one point, I took a few photos of her.
+At some point, I took a few photos of her.
 
 Mostly on her phone.
 
@@ -92,11 +86,11 @@ Then came one of the most awkward moments of the day.
 
 Completely accidental.
 
-While going through something on my phone, she briefly saw one of my nude art references — a stylized “Pieces” artwork I had saved.
+While going through something on my phone, she briefly saw a shirtless and pantless childhood photo of my niece.
 
-For a split second, her expression changed in genuine surprise.
+For a split second, her expression changed in surprise.
 
-I immediately tried explaining.
+I immediately tried explaining what it actually was.
 
 She quickly said she hadn’t seen anything.
 
@@ -104,11 +98,9 @@ Which obviously meant she had.
 
 The awkwardness lasted only a few seconds externally.
 
-But internally, my brain replayed it for much longer.
+But internally, my brain replayed it much longer.
 
-Not because it was scandalous.
-
-Mostly because attraction makes embarrassment feel ten times larger.
+Mostly because attraction makes embarrassment feel ten times larger than it actually is.
 
 After that, the conversation recovered slowly.
 
@@ -118,11 +110,11 @@ Into lighter topics.
 
 Into random discussions that allowed both of us to quietly move past the moment without acknowledging it further.
 
-Eventually, evening started fading into night.
+Eventually evening started fading into night.
 
 People around us kept changing while we somehow remained there for hours — working, talking, eating, walking, returning, repeating.
 
-And somewhere during all of it, the café had started feeling less like a public place and more like a temporary version of a shared routine.
+And somewhere during all of it, the day had started feeling less like two people casually meeting and more like a temporary version of a shared routine.
 
 That feeling scared me a little.
 
@@ -130,9 +122,33 @@ Because routines are dangerous.
 
 Especially imagined ones.
 
+Originally, she had planned to come to the bookstore around five and spend time reading there until around six-thirty.
+
+That was her plan from the beginning.
+
+But because I had to leave earlier, we ended up going much sooner — somewhere around four-ten.
+
+At that time, I didn’t think much about it.
+
+I was simply happy the day was continuing.
+
+Happy that she was still spending time with me.
+
+Only later did I realize something uncomfortable.
+
+Without directly saying it, I had slowly pulled the day toward my convenience.
+
+Her reading time had quietly become our time instead.
+
+And even though she never complained about it, the realization stayed with me afterward.
+
+Because affection sometimes hides selfishness inside ordinary moments.
+
+Especially when someone is kind enough to adjust without making you feel guilty about it.
+
 Finally, I said I should leave.
 
-We exchanged a normal goodbye.
+We exchanged a normal goodbye inside the bookstore.
 
 Nothing emotional.
 
@@ -140,21 +156,20 @@ Nothing cinematic.
 
 Just another ordinary ending to an ordinary day.
 
-But after walking out of the café, I stopped for a moment outside the glass windows.
+I walked out of the store and went downstairs.
 
-Inside, she had already returned to reading.
+And then, like an idiot, I slowed down and looked upward from below, trying to see whether she was looking for me from the bookstore entrance or through the glass.
 
-Completely absorbed again.
-
-And for some foolish reason, I stood there hoping she would look outside.
+Some foolish part of me hoped she would.
 
 That somehow our eyes would meet one last time before I left.
 
 As if that tiny moment would confirm something I myself couldn’t properly define.
 
-But she never looked up.
+But it never happened.
 
 After a few seconds, I smiled at my own stupidity, turned around, and walked away.
+
 
 
 
