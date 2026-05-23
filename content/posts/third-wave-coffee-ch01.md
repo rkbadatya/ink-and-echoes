@@ -1,0 +1,123 @@
+---
+title: 'Third Wave Coffee - Chapter 1'
+description: Before I Knew Her
+weight: 0
+date: 2026-05-23
+categories:
+  - story
+draft: false
+---
+
+“Even if the world ended and only we remained,” she said, “I’d still never love you.”
+
+Not shouted.
+
+Not spoken in anger.
+
+Just said plainly, like a fact she had accepted long ago.
+
+The noise around us continued as if nothing had happened. Somewhere nearby, a pressure cooker whistled from a house across the street. A bike passed through the narrow road. Someone laughed in the distance. The world moved forward normally, refusing to pause for the small disasters happening inside people.
+
+I smiled.
+
+Not because it didn’t hurt.
+
+But because some part of me had already expected it.
+
+And maybe that was the funny part.
+
+Because if someone had told me a few months earlier that a girl named Vaishnavi would someday say something like this to me, I would’ve laughed and moved on with my life.
+
+Back then, she was just another profile on Playo.
+
+13th March 2026.
+
+A boring evening. One of those days where you keep opening apps not because you want to do something, but because you don’t want to sit alone with your thoughts. I opened Playo looking for badminton games nearby. Most games were already full. Some were too far away. Some had people I didn’t know and timings I couldn’t manage.
+
+Then I saw her game.
+
+One slot left.
+
+No players had joined yet.
+
+I clicked without thinking much.
+
+Her profile opened.
+
+Vaishnavi.
+
+Just a simple picture. Nothing dramatic. No pose trying too hard to impress people. But something about her face stayed longer than it should have. Maybe it was the smile. Maybe it was the eyes. Or maybe I was simply lonely enough to find meaning in ordinary things.
+
+I sent the request.
+
+After some time, she accepted mine and another player’s request.
+
+That should’ve been the end of it.
+
+But I messaged her.
+
+Asked if the court was booked.
+
+She replied casually, asking if I was available from six to seven.
+
+I wasn’t.
+
+So I left the game.
+
+Strange how small moments decide whether two people become strangers forever or accidentally enter each other’s lives.
+
+The next day, on 14th March, I created a game myself.
+
+I sent the invite to her. Also asked if the other guy from the previous game could join. I don’t know why I did that. Maybe I genuinely wanted players. Maybe I just wanted another reason to talk to her without making it obvious.
+
+That game never happened.
+
+Another small failure.
+
+Another thing that should’ve ended there.
+
+But on 15th March, she messaged me herself.
+
+She asked if I was available for a singles game.
+
+I still remember staring at the screen for a few seconds before replying. Not because it was some romantic moment. It wasn’t. But because things like that never happened to me. Girls didn’t usually message first. Definitely not for a one-on-one game. Definitely not after barely knowing me.
+
+She said she was available anytime after six.
+
+Then she told me to book the court and let her know.
+
+And then, casually, as if it meant nothing, she shared her number.
+
+Her number.
+
+It sounds stupid now. But at that moment, it felt strangely personal.
+
+People guard phone numbers carefully. Especially in cities where everyone is tired of random messages and unnecessary familiarity. I had seen enough profiles on Playo to know how things usually worked. Girls either avoided direct messages completely or replied with the bare minimum before disappearing. Vaishnavi herself later admitted that she normally ignored most messages she received there.
+
+Yet here was this girl I had never even met properly, sending me her number before we had played a single game together.
+
+My brain tried to act normal.
+
+Maybe she shares it with everyone.
+
+Maybe coordinating games is easier on WhatsApp.
+
+Maybe this means absolutely nothing.
+
+But another part of me — the quieter, more dangerous part — kept replaying that notification again and again.
+
+For the next few hours, her contact sat in my phone like something important had happened.
+
+We weren’t even PlayPals on the app.
+
+Just two people connected by cancelled games and unfinished plans.
+
+
+
+
+
+
+
+
+
+

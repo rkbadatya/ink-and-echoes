@@ -1,0 +1,147 @@
+---
+title: 'Third Wave Coffee - Chapter 4'
+description: We'll play another time
+weight: 0
+date: 2026-05-23
+categories:
+  - story
+draft: false
+---
+
+After our second game, something changed inside me.
+
+Not externally.
+
+From the outside, everything still looked ordinary. Two people occasionally playing badminton after work. A few messages about court bookings. Nothing more.
+
+But internally, my days had started adjusting themselves around possibilities involving her.
+
+I began noticing evenings differently.
+
+If she messaged, the day instantly felt lighter. If she didn’t, I told myself it didn’t matter while checking my phone anyway.
+
+It was subtle enough that even I couldn’t fully admit it yet.
+
+Maybe because admitting it would also force me to admit how little I actually knew about her.
+
+After all, what did I really have?
+
+A few games.
+
+A few conversations.
+
+One incomplete sentence.
+
+And yet, my mind had already started giving those moments more meaning than they probably deserved.
+
+A few days later, I booked again.
+
+She couldn’t make it.
+
+Funny thing is, disappointment feels irrational in situations like these. We had played only twice. She owed me absolutely nothing. Yet some selfish part of me had already started expecting her presence in my routine.
+
+That’s how attachment begins sometimes.
+
+Not through promises.
+
+Not through love.
+
+Just through repeated possibilities.
+
+Then came 3rd April.
+
+I had been oddly excited for that game the entire day.
+
+Not the kind of excitement people openly admit to. Nothing dramatic. But one of those quiet moods where time moves slower because your mind keeps returning to the evening ahead.
+
+Work felt less irritating.
+
+Traffic looked manageable for once.
+
+Even the usual tiredness of the week seemed lighter because somewhere in the background of my mind was a simple thought:
+
+_I’m going to see her today._
+
+I left early and was already close to the venue when my phone rang.
+
+Vaishnavi.
+
+For a second, I smiled before answering.
+
+But her voice carried that familiar hesitation people use before disappointing someone.
+
+Work had come up.
+
+She explained everything quickly, almost apologetically. The kind of explanation a person gives when they are genuinely trying to make the other person understand they are not lying.
+
+What stayed with me later wasn’t the cancellation itself.
+
+It was the fact that she was still willing to come.
+
+Even after a long day.
+
+Even knowing it would affect her schedule.
+
+Even knowing I was already on the way.
+
+And strangely, that made it harder to insist.
+
+Because once you realize someone is trying, disappointment becomes difficult to express honestly.
+
+So I acted normal.
+
+Too normal.
+
+“No issues,” I said casually. “We’ll play another time.”
+
+As if I hadn’t been waiting for the evening all day.
+
+As if I wasn’t already a few minutes away from the court.
+
+As if disappointment was something mature people could simply switch off instantly.
+
+She suggested rescheduling, but Playo only allowed changes more than two hours before the game. It was already too late.
+
+So the booking stayed.
+
+The court stayed.
+
+Only the two people who planned to meet never did.
+
+I remember sitting in my parked car for a few minutes after the call ended.
+
+Not heartbroken.
+
+That would’ve been too dramatic for what we actually were.
+
+Just… empty in a strangely embarrassing way.
+
+Because the truth was difficult to explain even to myself.
+
+Why was I this affected?
+
+She was not my girlfriend.
+
+Not even a close friend.
+
+Just someone I had played badminton with twice.
+
+Yet my entire evening had quietly shaped itself around seeing her.
+
+That realization disturbed me more than the cancellation itself.
+
+Outside, people continued arriving at the sports complex carrying rackets and water bottles, laughing loudly, calling friends, walking toward their courts like any normal evening.
+
+For them, it was just another game night.
+
+For me, something small and invisible had already begun changing long before I understood it.
+
+
+
+
+
+
+
+
+
+
