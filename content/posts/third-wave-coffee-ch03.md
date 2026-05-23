@@ -94,6 +94,44 @@ But her booking the game herself made it feel slightly different.
 
 Slightly mutual.
 
+While driving toward the venue that evening, I noticed her walking on the side of the road some distance ahead. Maybe three hundred meters away from the court.
+
+For a second I slowed down automatically.
+
+Then I honked lightly so she would notice.
+
+She turned.
+
+I rolled down the window and asked if she wanted to join.
+
+She smiled politely and said she would rather walk.
+
+That was all.
+
+A normal answer.
+
+A completely reasonable answer.
+
+Yet the rejection landed more sharply inside me than it should have.
+
+Maybe because somewhere in my head, offering someone a lift belonged to a certain category of closeness. A quiet comfort between people.
+
+Nidhi had never refused when I offered.
+
+But Vaishnavi was not Nidhi.
+
+And that realization mattered.
+
+Nidhi and I had years of familiarity behind our comfort. Shared history naturally removes hesitation. Vaishnavi barely knew me outside badminton courts and short conversations.
+
+To her, refusing the lift was probably the most ordinary thing in the world.
+
+But attraction has a dangerous habit of treating ordinary boundaries like personal disappointments.
+
+So I nodded casually, drove ahead, parked near the venue, and acted like the moment had not affected me at all.
+
+Even though it had.
+
 So we played again.
 
 This time the awkwardness was lighter.
