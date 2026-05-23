@@ -8,15 +8,153 @@ categories:
 draft: false
 ---
 
-A few weeks later, she invited me to work with her from a café.
+Before the café invitation happened, weeks had already passed in small unfinished interactions.
 
-Not badminton.
+I kept asking her for badminton games whenever I found free evenings.
 
-Not a game booking.
+Sometimes she was busy.
 
-Just work.
+Sometimes timings didn’t match.
 
-That difference alone made the invitation feel unusually personal.
+Sometimes plans simply dissolved halfway through discussion like most adult plans eventually do.
+
+But unlike before, our conversations no longer disappeared completely after cancellations.
+
+There was continuity now.
+
+Small check-ins.
+
+Small updates.
+
+Small habits forming quietly between two people who still barely knew each other properly.
+
+Around that time, I had gone back home for our housewarming ceremony.
+
+I don’t even remember when I started keeping her updated about it so naturally. I told her about the travel, about reaching home, about returning back. Even my WhatsApp statuses became slightly more intentional during those days.
+
+Not exactly for her.
+
+But also not entirely unrelated to her.
+
+And strangely, she remembered it later.
+
+That affected me more than it should have.
+
+Because remembering small details creates a dangerous illusion of importance.
+
+One Sunday morning, we had planned another badminton game for the evening.
+
+This time the suggestion had come from her side.
+
+That alone was enough to improve my mood for the entire day.
+
+The timing kept changing slightly through messages until at one point she asked:
+
+“Can I call you?”
+
+I saw the message late.
+
+By the time I replied “yes,” she hadn’t seen it.
+
+So instead, I called her myself.
+
+I still remember answering that call with unnecessary excitement hidden under fake calmness.
+
+But almost immediately, I heard that same apologetic tone in her voice again.
+
+Some office colleagues were coming over.
+
+Things might get delayed.
+
+And just like before, I knew where the conversation was heading even before she completed the sentence.
+
+The game probably wouldn’t happen.
+
+Even though I had wanted to see her, I still responded the same way I always did.
+
+“Let’s reschedule.”
+
+Casual.
+
+Understanding.
+
+Supportive.
+
+As if disappointment had already become part of the routine.
+
+Later that evening, unexpectedly, she asked:
+
+“Do you drink?”
+
+I replied:\
+“Hardly.”
+
+Then jokingly asked:\
+“What? Are you inviting me to your house?”
+
+No response.
+
+Not that night.
+
+Not even the next day.
+
+And once again, my brain did what it had become dangerously good at doing by then:
+
+Overthinking silence.
+
+By Tuesday, I had almost stopped expecting anything from that conversation.
+
+Then suddenly, while I was having lunch with colleagues in office, I got a call from her.
+
+Completely unexpected.
+
+She asked if I was in office.
+
+Then asked whether I could come work from Nexus Shantiniketan.
+
+I remembered an older conversation where she had casually asked whether I ever worked from cafés. At that time, I had said yes without thinking much about it.
+
+Now suddenly that old conversation had returned with context.
+
+Because I was already in office, she said she might instead go to her cousin’s place.
+
+The call ended normally.
+
+But after five minutes of staring at my lunch without really tasting it, I called her back and asked if I could come in an hour.
+
+By then, her plan had already changed.
+
+That became another conversation entirely.
+
+She said she was spontaneous.
+
+I was more planned.
+
+And honestly, she was right.
+
+She made decisions emotionally and quickly.
+
+I kept trying to structure moments before living them.
+
+So instead of trying again immediately, we settled on Thursday.
+
+Thursday arrived much slower than it should have.
+
+For two days, the plan sat quietly in the back of my mind while I pretended to function normally around it.
+
+That’s the strange thing about anticipation. Externally, life continues exactly the same. Meetings happen. Work continues. Traffic exists. People talk. But internally, one future moment keeps replaying itself in the background of everything.
+
+By then, this was no longer just badminton.
+
+A badminton game lasts an hour.
+
+This was an entire workday together.
+
+That felt different.
+
+More personal.
+
+More dangerous.
 
 She said she would be working from Third Wave Coffee at Nexus Shantiniketan and asked if I wanted to join.
 
@@ -86,7 +224,9 @@ She didn’t offer either.
 
 And somehow that detail stayed with me too.
 
-Not because I expected her to pay. But because attraction makes people notice tiny absences alongside tiny kindnesses.
+Not because I expected her to pay.
+
+But because attraction makes people notice tiny absences alongside tiny kindnesses.
 
 We started talking slowly between her work.
 
@@ -113,6 +253,8 @@ I remember looking at our things lying openly on the table and realizing she tru
 Or maybe she trusted life more easily than I did.
 
 Then she asked about my housewarming ceremony.
+
+The fact that she remembered it at all made me strangely happy.
 
 After that, unexpectedly, she asked about marriage proposals.
 
@@ -177,6 +319,7 @@ Real problems.
 Real emotional history.
 
 Not the half-imagined space my mind had secretly been living inside.
+
 
 
 
