@@ -30,6 +30,34 @@ That is another strange thing attachment does.
 
 It quietly turns observation into habit.
 
+Left foot first.
+
+Following half a second behind her.
+
+Maybe the human mind quietly imitates the people it feels drawn toward.
+
+Or maybe some part of me simply liked the feeling of moving in rhythm with her, even in something as small as stepping onto an escalator.
+
+There were moments that day where the distance between us felt strangely small.
+
+Walking side by side through the mall.
+
+Pausing near railings.
+
+Waiting for elevators.
+
+Ordinary moments.
+
+But attraction has a way of filling ordinary spaces with unspoken impulses.
+
+A few times, I became suddenly aware of how close her hand was while we walked.
+
+Close enough to notice.
+
+Far enough to never touch.
+
+And perhaps that was our entire equation in a single moment.
+
 We found a place in the food court and ordered.
 
 Initially, she was about to pay.

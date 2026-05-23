@@ -28,6 +28,56 @@ Inside the bookstore, the atmosphere changed completely from the noisy café out
 
 She naturally drifted toward the fantasy section and picked up a Harry Potter book.
 
+She sat down near the corner with the book resting lightly in her hands, completely unaware of how carefully I had started observing her by then.
+
+There was something strangely calming about the way she looked while reading.
+
+Not glamorous in the loud cinematic sense.
+
+Just quietly beautiful.
+
+Her hair was tied back casually, slightly messy in a way that looked unplanned rather than careless. A few loose strands near her face softened her expressions whenever she looked down at the pages.
+
+She wore thin metal-frame glasses that somehow changed her entire presence.
+
+Not because glasses automatically make someone attractive.
+
+But because on her, they made concentration visible.
+
+Every time she lowered her eyes toward the book, reflections briefly appeared across the lenses, hiding her expressions for a second before revealing them again. Her lips stayed lightly pressed together in concentration while reading, as if the outside world had temporarily stopped existing for her. And without realizing it, I kept watching those tiny shifts longer than necessary.
+
+Her clothes were simple.
+
+A black T-shirt with white detailing across the front.
+
+Loose light-colored pants.
+
+Comfortable.
+
+Practical.
+
+Nothing about her looked like someone trying to impress anyone.
+
+And maybe that was exactly why I found it difficult to look away.
+
+She looked comfortable existing as herself.
+
+The kind of comfort I had always admired quietly in other people because I never fully had it within myself.
+
+Even the way she read felt calm. One hand resting lightly on the page while the other turned corners absentmindedly whenever the conversation paused.
+
+There are moments when attraction stops feeling dramatic and becomes something softer.
+
+More observational.
+
+You stop thinking:
+_She is beautiful._
+
+And start thinking:
+_I could watch this person exist for hours and not get bored._
+
+I think that was the first time I understood the difference.
+
 And somehow that started another long conversation.
 
 Characters.
@@ -57,6 +107,44 @@ And strangely, by then, I had already started mentally collecting those differen
 Maybe because attraction makes even incompatibility feel interesting in the beginning.
 
 At some point, I took a few photos of her.
+
+Initially, they were casual.
+
+Just moments from the bookstore.
+
+But after noticing the camera, she slowly became more playful about it.
+
+In one photo, she looked directly toward me while holding the Harry Potter book loosely near the table, her phone resting casually in her hand as if she had completely forgotten how long we had already spent there.
+
+There was a quiet kind of cuteness in that expression.
+
+Not the loud, performative kind people put on social media.
+
+Something softer.
+
+More comfortable.
+
+Her glasses slightly reflected the warm bookstore lights while her eyes stayed fixed on me through them with an expression that looked half amused, half patient — like she already knew I was overanalyzing every small thing about the day.
+
+And then there was that smile.
+
+Small.
+
+Closed-lip.
+
+Almost restrained.
+
+The kind of smile that appears when someone is not fully posing for the camera but still wants the person behind it to like the picture.
+
+I remember staring at that photo afterward longer than necessary.
+
+Not because it was perfect.
+
+But because it felt real.
+
+Unfiltered comfort.
+
+The kind that quietly slips past your defenses before you realize you’ve started attaching meaning to it.
 
 Mostly on her phone.
 
