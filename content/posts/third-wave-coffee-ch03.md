@@ -148,7 +148,7 @@ But standing there near the pool, listening to her speak casually about random t
 
 And started feeling like a person.
 
-While driving toward the venue another evening, I noticed her walking on the side of the road some distance ahead. Maybe three hundred meters away from the court.
+While driving toward the venue for the 2nd game in the evening, I noticed her walking on the side of the road some distance ahead. Maybe three hundred meters away from the court.
 
 For a second I slowed down automatically.
 
@@ -198,7 +198,7 @@ Even though it had.
 
 So we played again.
 
-This time the awkwardness was lighter.
+The 2nd time the awkwardness was lighter.
 
 Not gone.
 
@@ -208,7 +208,7 @@ We still didn’t talk much outside the game. Most conversations remained about 
 
 But familiarity had started forming quietly between those small exchanges.
 
-And somewhere between those two games, something dangerous began happening inside me.
+And somewhere between those two games, something began happening inside me.
 
 I started looking forward to her presence more than the sport itself.
 
