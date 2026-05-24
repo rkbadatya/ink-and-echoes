@@ -8,19 +8,133 @@ categories:
 draft: false
 ---
 
-After wandering around the electronics stores for some time, we eventually ended up inside Crossword Bookstore.
+By then, the day had already stretched far longer than either of us had probably planned.
 
-By then, the day had already stretched far longer than any interaction we had previously shared.
+Morning coffee had turned into lunch.
 
-Badminton games lasted an hour.
+Lunch had turned into work.
 
-Maybe ninety minutes.
+Work had somehow turned into walking around the mall together like we had nowhere urgent to be.
 
-But this was different.
+At some point we returned to the café again because she still had office work left.
 
-Hours had passed.
+She opened her laptop almost immediately after sitting down.
 
-And somehow neither of us had felt the need to leave.
+Calls. Slack messages. Meetings. Spreadsheets. The calm efficiency of someone used to carrying responsibility without making noise about it.
+
+That was when she started talking more about work.
+
+Not in a bragging way.
+
+More casually, between tasks.
+
+Her office. Her team. Deadlines. People depending on her for approvals. Escalations. Coordination.
+
+Somewhere in that conversation she mentioned she was a team lead.
+
+And honestly, that explained a lot.
+
+The way she spoke during games.
+
+The way she listened before replying.
+
+The way even her silence felt organized instead of awkward.
+
+She handled conversations the same way some people handle meetings — patiently, clearly, without rushing to fill every gap.
+
+Meanwhile I was pretending to work while mostly watching her switch between professional focus and casual conversation with impossible ease.
+
+She looked different while working.
+
+More composed.
+
+More distant in a way.
+
+Like there was an entire version of her that existed outside badminton courts and bookstore conversations — a version built from office politics, deadlines, responsibility, and years of becoming dependable.
+
+And strangely, that made me admire her more.
+
+Not because of the title itself.
+
+But because competence is attractive in a very quiet way.
+
+Especially when it arrives without performance.
+
+Every now and then she would remove her glasses briefly, rub her eyes, reply to someone on chat, then return to typing again.
+
+And during all this, one thought kept repeating in my head with embarrassing persistence.
+
+_When are we going to Crossword?_
+
+She had already mentioned earlier that she planned to go around five and stay there reading for a while.
+
+But I knew I had to leave earlier in the evening.
+
+And more than that, I had developed a very specific desire by then — I wanted to see her inside a bookstore.
+
+Reading.
+
+I don’t know why that mattered so much to me.
+
+Maybe because by then I had already started building versions of her inside my head from fragments. Badminton player. Quiet listener. Team lead. Solitude-loving girl who rereads Harry Potter for comfort.
+
+And somehow all those versions felt incomplete until I saw her doing the thing she genuinely loved.
+
+So every now and then, I interrupted her focus like an impatient child waiting for a trip.
+
+“Crossword kab chalna hai?”
+
+“Thodi der mein.”
+
+Ten minutes later:
+
+“Abhi chale?”
+
+She laughed once without looking away from the laptop.
+
+“Patience.”
+
+But patience had already stopped functioning properly inside me that day.
+
+Eventually, around 4:10, I asked again.
+
+This time she finally closed the laptop halfway and looked at me with the expression of someone who already knew she was adjusting her own plan slightly.
+
+“You really want to go, huh?”
+
+“A little,” I admitted.
+
+The truth was: not for the bookstore itself.
+
+For her inside it.
+
+She shook her head lightly, smiling in resignation more than annoyance.
+
+“Fine. Chalte.”
+
+Originally she had planned to go after five.
+
+But because I had to leave earlier — and because I kept asking — we went nearly an hour sooner.
+
+At that moment, I only felt excitement.
+
+Only later did I understand what had quietly happened underneath it.
+
+She had adjusted her day around mine without making it feel like a sacrifice.
+
+And I had accepted that adjustment a little too happily.
+
+That is the dangerous thing about growing attached to someone kind.
+
+Their flexibility starts feeling natural.
+
+You stop noticing where their accommodation ends and your selfishness begins.
+
+But at 4:10 that evening, none of those thoughts existed yet.
+
+There was only the simple happiness of walking beside her toward Crossword while she carried her bookish calmness through the noisy mall as if crowded places could never fully disturb her.
+
+Somehow neither of us had felt the need to leave.
 
 That realization stayed quietly in the background of my mind.
 
