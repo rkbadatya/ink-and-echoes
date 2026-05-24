@@ -1,14 +1,14 @@
 ---
 title: 'Third Wave Coffee - Chapter 6'
 description: Caste, Stories, and Expressions
-weight: 0
+weight: 55
 date: 2026-05-23
 categories:
   - story
 draft: false
 ---
 
-After working for some time, we decided to go for lunch.
+We had left the café saying we would get lunch.
 
 At first we thought about eating at California Burrito.
 
@@ -74,13 +74,33 @@ I liked doing things for her.
 
 While waiting for the food, the conversation shifted again.
 
+Maybe because we had already crossed into heavier territory upstairs. Or maybe because silence after honesty always searches for something lighter and fails to find it.
+
 She asked about my girlfriend.
 
-I laughed slightly and told her the answer was already inside the story I had shared earlier.
+The question came the way her earlier ones often did — direct, without cushioning.
+
+I laughed slightly.
+
+“There isn’t one,” I said.
+
+She looked unconvinced.
+
+So I added, “The answer is probably already in that story I sent you. _Before the Train Left._”
+
+She raised her eyebrows slightly.
+
+“Woh?”
+
+“Haan. Pehla chapter.”
 
 Then I asked if she had actually read it.
 
-“Only the first one,” she said.
+For a second she looked like she was deciding how much truth the moment deserved.
+
+“Padha,” she said. “Sirf pehla wala.”
+
+Only the first one.
 
 Something changed after that.
 
@@ -88,13 +108,57 @@ Very subtly.
 
 Until then, the conversation had been flowing naturally. But after mentioning the story, her expressions became quieter. She stopped looking directly at me as much. Her eyes stayed lowered more often. The energy from earlier had shifted slightly out of reach.
 
+I asked when.
+
+“Kuch din pehle,” she said. “Raat ko. Office se ghar jaate waqt metro mein.”
+
+She had read it on her commute.
+
+Alone.
+
+In the kind of quiet pocket of time where written words feel louder than conversation.
+
+“Kaisa laga?” I asked, trying to sound casual.
+
+She shrugged.
+
+“Achha likhte ho tum.”
+
+A compliment wrapped inside distance.
+
+Then she added:
+
+“Bas pehla chapter tha na. Ladki mil gayi station pe. Aage ka pata nahi.”
+
+That line stayed with me longer than it should have.
+
+Because in the first chapter, nothing terrible happens. No confession. No rejection. Just a boy seeing a girl on a platform and feeling, without permission, that something inside him has shifted.
+
+Maybe that was exactly why she stopped.
+
+Or maybe the opposite.
+
+Maybe she read the loneliness in it too clearly.
+
+Maybe she saw a pattern.
+
+Maybe she understood, without me saying a single direct word, that the man sitting across from her in a food court had already started doing with her what the boy in the story had done with a stranger on Platform Number One.
+
 And sitting there across from her, I started wondering if she was suddenly rethinking the entire situation.
 
 Maybe she was trying to understand me differently now.
 
+Not as a badminton contact.
+
+Not as someone safe to work beside for a day.
+
+But as someone who writes longing into sentences and then sends the first page to people he barely knows.
+
 Or worse.
 
 Maybe she was realizing that I understood her differently.
+
+That I had listened to her talk about him not simply as a friend offering sympathy, but as a man storing every detail with dangerous care.
 
 There’s a particular discomfort that appears when two people slowly become aware of emotional imbalance without directly discussing it.
 
@@ -102,13 +166,31 @@ I think that was the first time I felt traces of it between us.
 
 So I started talking more casually again.
 
-Telling her about Nidhi.
+I told her about Nidhi.
 
-Random stories.
+Not romantically.
 
-Random observations.
+Never romantically.
 
-Trying to pull the atmosphere back toward comfort.
+Just a friend I had known for years — the kind of friendship where comfort exists without explanation. Where offering a lift never feels like a gesture. Where silence is not awkward because history has already done the work.
+
+Random stories about her.
+
+Small observations.
+
+Nothing that required emotional decoding.
+
+I was trying to pull the atmosphere back toward comfort.
+
+Trying to remind both of us, without saying it directly, that I was capable of normal friendship too.
+
+That not every closeness in my life arrived with this quiet, one-sided intensity.
+
+I don’t know if it worked.
+
+But she laughed at one of the stories.
+
+And for a few minutes, the table felt lighter again.
 
 The food arrived eventually.
 

@@ -1,7 +1,7 @@
 ---
 title: 'Third Wave Coffee - Chapter 5'
 description: The Reserved Seat
-weight: 0
+weight: 54
 date: 2026-05-23
 categories:
   - story
@@ -27,6 +27,22 @@ Small check-ins.
 Small updates.
 
 Small habits forming quietly between two people who still barely knew each other properly.
+
+Somewhere in the middle of those weeks, during one of our late-night check-ins, she had asked what I did when I wasn’t working or playing badminton.
+
+I told her I wrote sometimes.
+
+Old stories. Random pieces. Things I had posted online years ago and mostly forgotten about.
+
+She asked to see one.
+
+I hesitated for a moment — not because I was hiding anything, but because sending someone a link to something you wrote feels strangely more personal than it should. Still, I scrolled through my blog and sent her the first chapter of an old series called _Before the Train Left_.
+
+She replied with a simple thumbs-up emoji.
+
+Then nothing else about it.
+
+I told myself that meant she would read it later.
 
 Around that time, I had gone back home for our housewarming ceremony.
 
@@ -256,6 +272,68 @@ Then she asked about my housewarming ceremony.
 
 The fact that she remembered it at all made me strangely happy.
 
+Somewhere between her work calls and mine, the conversation slipped into something lighter.
+
+Age.
+
+I don’t remember who brought it up first. Maybe it came naturally while talking about office and careers. She had done her masters, she said, which explained why someone with only around five years of working experience could still sound so certain in professional conversations. She was twenty-seven.
+
+I kept asking her to guess mine.
+
+Not once. Multiple times, almost playfully, as if the answer mattered more than it should have.
+
+She finally said twenty-nine.
+
+The same number she had apparently been assuming all along — about two years older than her, the way she thought her boyfriend was.
+
+When I told her I was thirty-three, she looked genuinely surprised.
+
+“You don’t look it,” she said.
+
+I laughed because people have said that before. But hearing it from her felt different somehow. As if she had been quietly placing me in a certain age bracket all along, and discovering I sat outside it required adjusting something small in her mental picture of me.
+
+We talked about salary too.
+
+Not arrogantly. Just the way people sometimes speak when trust has begun forming and numbers start replacing guesses.
+
+She said her package was somewhere in the twenty to twenty-five lakh range.
+
+I didn’t press for exact figures.
+
+Then, almost casually, she admitted she had never asked her boyfriend what he earned. Never directly. But she assumed it might be close to fifty lakh.
+
+The gap between those numbers sat quietly between us for a second.
+
+Not as judgment.
+
+Just as information about two different worlds she was already living inside.
+
+At some point she spoke about office too.
+
+She explained her work-from-home setup almost casually, as if it were the most normal arrangement in the world. She only had to go to the office five days a month. The rest of the time, she worked from wherever she wanted — home, a cousin’s place, or a café like the one we were sitting in.
+
+That part made sense suddenly.
+
+Why she could suggest spending an entire Thursday working from Third Wave Coffee without it sounding impractical. Why her laptop was already open when I arrived. Why the day had felt possible at all.
+
+She also talked about how she had ended up in this company specifically.
+
+Not because of a dramatic career move or a desperate job switch. She had chosen it deliberately — for the freedom it offered and for the team she had heard about before joining. People who worked without unnecessary drama. Managers who didn’t breathe down your neck for simply being at home.
+
+“The work freedom mattered to me,” she said. “And the team was good. That’s why I came here.”
+
+She said it simply, like someone who had already weighed the trade-offs and accepted them.
+
+She was a team lead now, she said, but some seniors still didn’t fully accept her in that role. Meetings where suggestions were ignored. Conversations where authority had to be repeated instead of assumed.
+
+She had sorted it out with her manager eventually.
+
+Her manager had told her plainly that managing it was part of the job — not something to wait for permission to feel.
+
+She said it without bitterness.
+
+More like someone who had already fought the battle and was tired of revisiting it.
+
 After that, unexpectedly, she asked about marriage proposals.
 
 Whether my family was searching.
@@ -270,7 +348,11 @@ That answer opened another conversation entirely.
 
 Before talking about herself, she suddenly asked:
 
-“You don’t have caste issues, right?”
+“Tumhe caste se problem toh nahi hai na?”
+
+The Hindi arrived without warning.
+
+Not the polite English we had been using until then. Something closer to how people actually speak when the topic stops being theoretical.
 
 I remember pausing slightly at that.
 
@@ -278,19 +360,109 @@ Not because I was offended.
 
 But because the question felt like it came from somewhere deeper than casual discussion.
 
-And then she started talking about him.
+“Nahi,” I said. “Mujhe usse koi problem nahi hai.”
 
-Her boyfriend.
+She looked at me for a second, as if checking whether I meant it or was simply saying the right thing.
 
-Not directly at first.
+Then she nodded once and looked back at her laptop screen.
 
-But slowly the shape of the story became clear.
+For a moment I thought the conversation was over.
 
-They had caste problems.
+But she closed a tab, pushed her hair behind her ear, and said:
 
-Family complications.
+“Mere liye problem hai.”
 
-An uncertain future hanging over the relationship.
+She was Brahmin, she said.
+
+Her family would not allow it.
+
+The words were simple. The weight behind them wasn’t.
+
+That was when she started talking about him.
+
+Not as “my boyfriend” at first.
+
+Just _wo._
+
+The guy from the court.
+
+The one I had seen waiting near the Thar.
+
+I still didn’t know his name.
+
+She never said it.
+
+I never asked.
+
+Somehow that made him feel even more real — not as a person I could place, but as someone who already belonged completely to a part of her life I was only visiting.
+
+“Teen saal ho gaye,” she said. “Hum dono ko pata hai ki hum saath hain. Par ghar pe… woh alag baat hai.”
+
+She spoke faster in Hindi after that, as if the language itself made honesty easier.
+
+Her mother, she said, had already started discussing matches at home. Suitable boys. Familiar surnames. Conversations that sounded practical on the surface but carried an entire history underneath them.
+
+“Mummy ne ek baar bola tha,” she said, stirring her coffee without looking up, “_‘Pyar se ghar nahi chalta.’_”
+
+I didn’t know what to say to that.
+
+So I stayed quiet.
+
+Which, strangely, seemed to be what she needed.
+
+She told me their families had met once. Formally. The kind of meeting arranged not to bless love but to measure incompatibility. Her father had been polite. His had been silent in the way that says more than shouting.
+
+“Un log ke liye sirf love kaafi nahi hota,” she said.
+
+And then, almost as if she needed to balance the heaviness with something that still sounded like hope:
+
+“Mera banda bola hai ki wo mana lega.”
+
+He has confidence that he can make it work. That he can convince them.
+
+I didn’t know whether to find that brave or heartbreaking.
+
+Then, after a pause:
+
+“Kabhi kabhi mujhe lagta hai main unhe disappoint kar rahi hoon. Kabhi kabhi lagta hai main apne aap ko.”
+
+Her voice didn’t break.
+
+She wasn’t performing grief.
+
+She was simply tired in the way people become when they have already replayed the same argument inside their head too many times.
+
+At one point her phone buzzed.
+
+She glanced at the screen, smiled slightly — a different smile, softer, automatic — and typed a short reply before turning the phone face-down again.
+
+I didn’t ask who it was.
+
+I already knew.
+
+And that small moment hurt more than any direct confession could have.
+
+Because it wasn’t dramatic.
+
+It was routine.
+
+The kind of intimacy that exists between two people who have history, habit, and a shared future they were still fighting for.
+
+She looked up again and said, almost apologetically:
+
+“Main tumhe yeh sab isliye nahi bata rahi kyunki…”
+
+She stopped.
+
+Searched for the sentence.
+
+“Bas bolna tha,” she finished.
+
+Just needed to say it.
+
+That line stayed with me.
+
+Because people rarely explain why they choose one listener over another. They simply arrive at the moment and speak.
 
 And while she spoke, I noticed something change in her expression.
 
@@ -302,15 +474,29 @@ Like someone discussing a problem they had already spent too many nights thinkin
 
 I listened quietly.
 
-And somewhere in the middle of her talking, an uncomfortable realization settled inside me.
+Asked only small questions when needed.
 
-Until then, her boyfriend had existed mostly as an incomplete idea in my head.
+How long.
+
+Whether his family had said anything directly.
+
+Whether she still believed it could work.
+
+She answered honestly.
+
+“Mujhe lagta hai ho sakta hai,” she said. “Par kab aur kaise… pata nahi.”
+
+Somewhere in the middle of all that, an uncomfortable realization settled inside me.
+
+Until then, he had existed mostly as an incomplete idea in my head.
 
 An assumption.
 
 A possibility.
 
-But sitting there across from her while she spoke about him seriously made everything feel real in a way I had been subconsciously avoiding.
+A man in a Thar I had never properly seen.
+
+But sitting there across from her while she spoke about him seriously — in Hindi, without filters — made everything feel real in a way I had been subconsciously avoiding.
 
 Real relationships.
 
@@ -319,6 +505,12 @@ Real problems.
 Real emotional history.
 
 Not the half-imagined space my mind had secretly been living inside.
+
+When the conversation finally slowed, she opened her laptop again as if nothing heavy had happened.
+
+“Chalo,” she said lightly. “Bhookh lag rahi hai. Lunch karte hain?”
+
+And just like that, we moved.
 
 
 
