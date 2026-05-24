@@ -24,7 +24,7 @@ Just in case.
 
 A day or two after the game, we were discussing another booking on WhatsApp.
 
-**Me:** Book kar doon court? Tum dono aa sakte ho — tum singles, usko bhi ek court. Husband ko bhi le aana if he plays.
+**Me:** Book kar doon court? Husband ko bhi le aana if he plays.
 
 I don’t even know why I said _husband_ so confidently.
 
