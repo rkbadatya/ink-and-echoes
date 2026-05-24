@@ -78,7 +78,7 @@ Another small failure.
 
 Another thing that should’ve ended there.
 
-But on 15th March, she messaged me herself on WhatsApp — the first time our conversation had moved outside Playo.
+But on 15th March, she messaged me herself on Playo.
 
 **Her:** Singles game chalega kal? I’m free anytime after six.
 
