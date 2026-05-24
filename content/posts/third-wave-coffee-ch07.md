@@ -1,7 +1,7 @@
 ---
 title: 'Third Wave Coffee - Chapter 7'
 description: Looking Through Glass
-weight: 0
+weight: 56
 date: 2026-05-23
 categories:
   - story

@@ -1,7 +1,7 @@
 ---
 title: 'Third Wave Coffee - Chapter 3'
 description: One Missing Sentence
-weight: 0
+weight: 52
 date: 2026-05-23
 categories:
   - story

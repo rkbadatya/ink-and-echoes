@@ -1,7 +1,7 @@
 ---
 title: 'Third Wave Coffee - Chapter 2'
 description: Across the Net
-weight: 0
+weight: 51
 date: 2026-05-23
 categories:
   - story

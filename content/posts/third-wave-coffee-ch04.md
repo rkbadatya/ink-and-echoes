@@ -1,7 +1,7 @@
 ---
 title: 'Third Wave Coffee - Chapter 4'
 description: We'll play another time
-weight: 0
+weight: 53
 date: 2026-05-23
 categories:
   - story

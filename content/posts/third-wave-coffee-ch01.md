@@ -1,7 +1,7 @@
 ---
 title: 'Third Wave Coffee - Chapter 1'
 description: Before I Knew Her
-weight: 0
+weight: 50
 date: 2026-05-23
 categories:
   - story
