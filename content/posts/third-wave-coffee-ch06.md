@@ -10,9 +10,15 @@ draft: false
 
 We had left the café saying we would get lunch.
 
-At first we thought about eating at California Burrito.
+“California Burrito chalega?” I asked.
 
-But halfway there, she suddenly changed her mind and said she wanted chole bhature instead.
+“Haan, chalo,” she said.
+
+But halfway there, she stopped.
+
+“Actually no. Chole bhature khaane ka mann kar raha hai.”
+
+“Done,” I said. “Direction change.”
 
 So naturally, we changed direction.
 
@@ -40,23 +46,15 @@ Or maybe some part of me simply liked the feeling of moving in rhythm with her, 
 
 There were moments that day where the distance between us felt strangely small.
 
-Walking side by side through the mall.
+Walking side by side through the mall, I caught her profile between the bright shop lights — the line of her jaw, the quiet focus in her eyes, the way she looked ahead as if the crowd did not exist. From the side, her face looked like a coin held in sunlight: simple, clear, almost too perfect for something so casual.
 
-Pausing near railings.
-
-Waiting for elevators.
+Pausing near railings. Waiting for elevators.
 
 Ordinary moments.
 
 But attraction has a way of filling ordinary spaces with unspoken impulses.
 
-A few times, I became suddenly aware of how close her hand was while we walked.
-
-Close enough to notice.
-
-Far enough to never touch.
-
-And perhaps that was our entire equation in a single moment.
+A few times, I became suddenly aware of how close her hand was while we walked — close enough to notice, far enough to never touch. Her wrist was slender, her nails plain, nothing designed to be admired. And yet my eyes kept returning to her the way they might return to the sea — not because the sea performs for you, but because depth is difficult to leave alone.
 
 We found a place in the food court and ordered.
 
@@ -200,7 +198,105 @@ But bad food becomes strangely irrelevant when your attention is fixed somewhere
 
 After lunch we returned to the café.
 
-She resumed working.
+She resumed working — calls, meetings, typing. I pretended to focus on my laptop too. But the food court conversation had shifted something between us, and the afternoon felt less like morning had felt. Less careful. More exposed.
+
+When she finally leaned back from the screen for a break, the talk started casually again.
+
+“Weekend pe kuch plan hai?” she asked. “Hum log kuch kar rahe hain — join karoge?”
+
+The word _hum log_ landed before I could prepare for it.
+
+Not her alone.
+
+Them.
+
+For a second my mind tried to picture it — her, him, and me walking behind them like an extra person supplied for convenience. Third wheel. The kind of role you accept once and never respect yourself for accepting.
+
+So I paused, searched for something believable, and lied badly.
+
+“Actually weekend thoda packed hai. Ghar pe kaam bhi pada hai — household stuff. Movie bhi socha tha dekhne ka…”
+
+I kept adding details as if more words could make the excuse sound truer.
+
+She nodded. “Okay, no problem.”
+
+No disappointment in her voice. No curiosity about whether I was actually busy. Just acceptance — the kind that makes you wonder whether the invitation was polite in the first place.
+
+That should’ve been the end of it.
+
+But something in me couldn’t leave the afternoon alone.
+
+“Ek baat poochun?” I said.
+
+“Haan bolo.”
+
+“Café mein aaj tum akele aayi. Tumhare… usko kyun nahi bulaya? Saath mein kaam karte. Ya at least baithte.”
+
+She looked at me like the question was simpler than I was making it.
+
+“Busy tha,” she said.
+
+Just that.
+
+No apology. No explanation about why busy people still get weekends and café days and plans that include _hum log_ but not me.
+
+I nodded as if I understood completely.
+
+Then she asked, almost curiously:
+
+“Tumhe yahan akele aake kaam karna pasand hai kya? Café mein? Solo?”
+
+I paused.
+
+The honest answer was complicated. I didn’t want to work alone here. I wanted to work here because she was here. Because the chair beside me had been reserved. Because alone would have meant a different day entirely.
+
+“Not alone,” I said.
+
+She heard it. I could tell she heard it.
+
+But she didn’t fill the silence with romance or reassurance. She only said:
+
+“Main toh akele karna pasand karti hoon. Travel. Book padhna. Yahan baith ke kaam karna. Sab akele.”
+
+She said it without pride or sadness — like a fact about herself she had stopped defending long ago.
+
+“Badminton mein do log chahiye,” she added, smiling slightly. “Warna woh bhi main akele hi khel leti.”
+
+That smile stayed with me.
+
+Not because it was cruel.
+
+Because it was clear.
+
+She was telling me who she was.
+
+Someone who chose solitude easily.
+
+Someone who made exceptions only where physics or society demanded a second person.
+
+And I was slowly becoming one of those exceptions without knowing whether that meant anything at all.
+
+The conversation drifted after that.
+
+At one point, trying to sound casual, I asked if she had gone on a hike recently.
+
+“Nahi,” she said.
+
+“Oh.” I said it before thinking. “Maybe someone else went.”
+
+She looked up. A small smile appeared — not warm, not cold. Sarcastic in that precise way only people who already see through you can manage.
+
+“Haan,” she said. “Ho sakta hai kisi aur ne gaya ho.”
+
+Yes. Could be someone else.
+
+The smile said the rest.
+
+That I was probably doing with other people what I was doing with her — reading meaning into small things, keeping too many connections at the same emotional height, acting as if every parallel line must lead somewhere.
+
+I laughed lightly because I didn’t know what else to do.
+
+She went back to her laptop.
 
 Calls. Meetings. Typing. Focus.
 
@@ -222,11 +318,11 @@ Still, every time her attention returned to her laptop for too long, I felt oddl
 
 Twice, I interrupted her unnecessarily.
 
-Small things.
+“Busy ho?” I asked once, though I could see she was on a call.
 
-Random comments.
+“Meeting,” she whispered. “Five minutes.”
 
-Questions that could’ve waited.
+Another time I pointed at her screen and said something stupid about a wallpaper just to make her look up.
 
 At that moment, I justified it as conversation.
 
@@ -234,25 +330,25 @@ Later, I realized it was neediness wearing casual clothes.
 
 At one point I suggested we go check out MacBooks nearby.
 
-She agreed easily.
+Two days earlier, the same suggestion had died in WhatsApp — _bahut busy_. Another closed door. Now it opened too easily, and I didn’t know whether to feel happy or careful.
 
-So we walked through the mall again.
+“MacBook dekhenge?” I asked.
 
-And outside the structured space of badminton courts and café tables, the dynamic between us felt different somehow.
+She looked up from her laptop. “Haan chalo. Window shopping counts as break.”
 
-Lighter.
+No hesitation this time.
 
-More playful.
+So we walked through the mall again — the same mall where I had once asked and been told the week was tough.
 
-There were moments that almost looked like flirting if viewed from the outside.
+And outside the structured space of badminton courts and café tables, the dynamic between us felt different somehow — lighter, more playful.
 
-Small teasing remarks.
+“You think too much,” she said at one display, laughing.
 
-Smiles held half a second longer.
+“I think normally,” I said. “You just say that because I’m quiet.”
 
-Her mocking me for overthinking certain things.
+“Quiet log usually sabse zyada sochte hain.”
 
-Me pretending confidence I didn’t fully possess.
+She held my eye half a second longer than necessary. I pretended confidence I didn’t fully possess.
 
 Nothing direct.
 

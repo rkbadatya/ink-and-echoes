@@ -28,13 +28,17 @@ Small updates.
 
 Small habits forming quietly between two people who still barely knew each other properly.
 
-Somewhere in the middle of those weeks, during one of our late-night check-ins, she had asked what I did when I wasn’t working or playing badminton.
+Somewhere in the middle of those weeks, during one of our late-night check-ins:
 
-I told her I wrote sometimes.
+**Her:** You never told me — what do you do apart from work and badminton?
 
-Old stories. Random pieces. Things I had posted online years ago and mostly forgotten about.
+**Me:** Nothing exciting. I write sometimes. Old stuff.
 
-She asked to see one.
+**Her:** Write matlab? Stories?
+
+**Me:** Yeah. Random pieces. Posted online years ago mostly.
+
+**Her:** Send something na.
 
 I hesitated for a moment — not because I was hiding anything, but because sending someone a link to something you wrote feels strangely more personal than it should. Still, I scrolled through my blog and sent her the first chapter of an old series called _Before the Train Left_.
 
@@ -74,39 +78,29 @@ By the time I replied “yes,” she hadn’t seen it.
 
 So instead, I called her myself.
 
-I still remember answering that call with unnecessary excitement hidden under fake calmness.
+“Hey,” I said, trying to sound normal.
 
-But almost immediately, I heard that same apologetic tone in her voice again.
+“Hey… sorry, colleagues aa rahe hain ghar pe. Game thoda doubtful lag raha hai.”
 
-Some office colleagues were coming over.
+I still remember how quickly my mood dropped — and how quickly I hid it.
 
-Things might get delayed.
+“No worries,” I said. “Let’s reschedule.”
 
-And just like before, I knew where the conversation was heading even before she completed the sentence.
+Casual. Understanding. Supportive. As if disappointment had already become part of the routine.
 
-The game probably wouldn’t happen.
+“Sure, sorry again,” she said.
 
-Even though I had wanted to see her, I still responded the same way I always did.
+We hung up.
 
-“Let’s reschedule.”
+The game didn’t happen.
 
-Casual.
+Later that evening, unexpectedly, her message appeared:
 
-Understanding.
+**Her:** Do you drink?
 
-Supportive.
+**Me:** Hardly. Why?
 
-As if disappointment had already become part of the routine.
-
-Later that evening, unexpectedly, she asked:
-
-“Do you drink?”
-
-I replied:\
-“Hardly.”
-
-Then jokingly asked:\
-“What? Are you inviting me to your house?”
+**Me:** What — inviting me to your house? 😄
 
 No response.
 
@@ -114,43 +108,63 @@ Not that night.
 
 Not even the next day.
 
-And once again, my brain did what it had become dangerously good at doing by then:
+And once again, my brain did what it had become dangerously good at doing by then: overthinking silence.
 
-Overthinking silence.
+Badminton had become difficult to land by then. She was busy more often than available. Timings slipped. Plans dissolved. Each cancellation came with a reasonable reason, and each reason still left me looking for another excuse to see her.
 
-By Tuesday, I had almost stopped expecting anything from that conversation.
+Two days before Thursday — on Tuesday morning, while the drink question was still sitting unanswered in our chat — I tried a different angle.
 
-Then suddenly, while I was having lunch with colleagues in office, I got a call from her.
+**Me:** MacBook dekhne chalega kya mall mein? Nexus side. Kabhi time ho toh.
+
+A failed attempt, if I was honest with myself. Not really about laptops. Just another way of asking: can we meet for an hour without calling it badminton?
+
+**Her:** This week tough hai. Bahut busy.
+
+Another bahana.
+
+Or maybe she genuinely was busy. The problem was that my mind had stopped distinguishing between the two.
+
+I replied with something casual. *No worries. Some other time.* The way you respond when you don’t want to admit you feel rejected by a sentence that small.
+
+By Tuesday afternoon, I had almost stopped expecting anything from any conversation with her.
+
+Then suddenly, while I was having lunch with colleagues in office, my phone rang.
+
+Vaishnavi.
 
 Completely unexpected.
 
-She asked if I was in office.
+“Office mein ho?” she asked.
 
-Then asked whether I could come work from Nexus Shantiniketan.
+“Haan. Lunch break.”
 
-I remembered an older conversation where she had casually asked whether I ever worked from cafés. At that time, I had said yes without thinking much about it.
+“Okay… random question. Nexus Shantiniketan aa sakte ho kaam karne? Café se work.”
 
-Now suddenly that old conversation had returned with context.
+I remembered an older conversation where she had casually asked whether I ever worked from cafés. At that time, I had said yes without thinking much about it. Now that old question had returned with context.
 
-Because I was already in office, she said she might instead go to her cousin’s place.
+“Today?” I asked.
 
-The call ended normally.
+“Haan, if free.”
 
-But after five minutes of staring at my lunch without really tasting it, I called her back and asked if I could come in an hour.
+“I’m in office right now,” I said. “Might be difficult to leave immediately.”
 
-By then, her plan had already changed.
+“Okay okay. No problem. I’ll go to my cousin’s place then.”
+
+The call ended normally — too normally.
+
+But after five minutes of staring at my lunch without really tasting it, I called her back.
+
+“Actually,” I said, “I can come in an hour if you’re still there.”
+
+“Too late,” she laughed. “Plan change ho chuka. Cousin ke paas jaa rahi hoon.”
 
 That became another conversation entirely.
 
-She said she was spontaneous.
+“You’re very spontaneous,” I said.
 
-I was more planned.
+“And you’re very planned,” she replied.
 
-And honestly, she was right.
-
-She made decisions emotionally and quickly.
-
-I kept trying to structure moments before living them.
+She was right. She made decisions emotionally and quickly. I kept trying to structure moments before living them.
 
 So instead of trying again immediately, we settled on Thursday.
 
@@ -172,9 +186,13 @@ More personal.
 
 More dangerous.
 
-She said she would be working from Third Wave Coffee at Nexus Shantiniketan and asked if I wanted to join.
+On Thursday morning, her message arrived:
+
+**Her:** Third Wave Coffee, Nexus Shantiniketan. WFH from here today. Join if you want.
 
 I tried replying normally.
+
+**Me:** Okay. See you there.
 
 But internally, my brain had already converted the entire day into an event.
 
@@ -186,27 +204,23 @@ You are excited just to exist near them.
 
 At one point, I casually suggested we could go together.
 
-She immediately said no.
+“Chalein saath mein?” I asked while getting ready.
 
-Not rudely.
+“Nahi,” she said. Not rudely. Just directly. “Wahan milte hain.”
 
-Just directly.
-
-She preferred meeting there.
-
-That small refusal stayed with me during the drive.
-
-Not painfully. Just enough to remind me that whatever this was inside my head, she was still maintaining her own boundaries naturally.
+That small refusal stayed with me during the drive — not painfully, just enough to remind me that whatever this was inside my head, she was still maintaining her own boundaries naturally.
 
 By the time I reached the mall, I had already called her once because I couldn’t properly find the café entrance.
 
-When I finally entered, she was already there.
+“Main andar hoon,” she said. “Third Wave — gate ke andar right side.”
 
-Sitting with her laptop open.
+When I finally entered, she was already there, laptop open, working.
 
-Working.
+Daylight from the mall windows fell across her face in a slow, gold wash. Without makeup, without effort, she looked like someone the light had been searching for. Her eyes, lowered toward the screen, still carried that same depth I had noticed at the court — like an ocean seen from above, calm on the surface, unreadable below. A loose strand of hair rested near her cheek. Her fingers moved over the keyboard with an ease that made watching feel intimate, as if I were seeing a private version of her no photograph could hold.
 
-And before anything else, she smiled slightly and told me something with visible satisfaction in her voice.
+I stood at the entrance half a second longer than necessary.
+
+And before anything else, she smiled slightly and said, with visible satisfaction in her voice:
 
 “I reserved this seat for you.”
 

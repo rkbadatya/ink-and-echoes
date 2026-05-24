@@ -8,29 +8,15 @@ categories:
 draft: false
 ---
 
-After our second game, something changed inside me.
+After our second game, something changed inside me — not externally, but internally.
 
-Not externally.
+From the outside, everything still looked ordinary. Two people occasionally playing badminton after work. A few messages about court bookings. Nothing more. But my days had started adjusting themselves around possibilities involving her.
 
-From the outside, everything still looked ordinary. Two people occasionally playing badminton after work. A few messages about court bookings. Nothing more.
+I began noticing evenings differently. If she messaged, the day instantly felt lighter. If she didn’t, I told myself it didn’t matter while checking my phone anyway.
 
-But internally, my days had started adjusting themselves around possibilities involving her.
+It was subtle enough that even I couldn’t fully admit it yet. Maybe because admitting it would also force me to admit how little I actually knew about her.
 
-I began noticing evenings differently.
-
-If she messaged, the day instantly felt lighter. If she didn’t, I told myself it didn’t matter while checking my phone anyway.
-
-It was subtle enough that even I couldn’t fully admit it yet.
-
-Maybe because admitting it would also force me to admit how little I actually knew about her.
-
-After all, what did I really have?
-
-A few games.
-
-A few conversations.
-
-One incomplete sentence.
+After all, what did I really have? A few games. A few conversations. One incomplete sentence.
 
 And yet, my mind had already started giving those moments more meaning than they probably deserved.
 
@@ -66,65 +52,41 @@ I left early and was already close to the venue when my phone rang.
 
 Vaishnavi.
 
-For a second, I smiled before answering.
+For a second, I smiled before answering. “Hey.”
 
-But her voice carried that familiar hesitation people use before disappointing someone.
+“Hey… actually—” She paused. I knew that pause by then. “Work thoda extend ho gaya. I’m really sorry.”
 
-Work had come up.
+“It’s okay,” I said, too quickly. “No issues.”
 
-She explained everything quickly, almost apologetically. The kind of explanation a person gives when they are genuinely trying to make the other person understand they are not lying.
+“Nahi, seriously. I was planning to come. Office mein kuch urgent aa gaya.” Her voice had that apologetic hurry people use when they want you to believe them — and when they already know they’re disappointing you. “Tum already nikal gaye ho kya?”
 
-What stayed with me later wasn’t the cancellation itself.
+“Haan. Almost pahunch gaya.”
 
-It was the fact that she was still willing to come.
+I don’t know why I said it like that. Maybe I wanted her to feel that the evening had already started without her. Maybe I just wanted her to know I had been looking forward to it, without saying those words directly.
 
-Even after a long day.
+What stayed with me later wasn’t the cancellation itself. It was the fact that she was still willing to come — even after a long day, even knowing it would affect her schedule, even knowing I was already on the way. And strangely, that made it harder to insist. Because once you realize someone is trying, disappointment becomes difficult to express honestly.
 
-Even knowing it would affect her schedule.
+There was a small silence on the line.
 
-Even knowing I was already on the way.
+“Playo pe reschedule kar sakte hain kya?” she asked.
 
-And strangely, that made it harder to insist.
+I checked mentally. “I don’t think so. Two hours se pehle hi hota hai shayad. Ab toh late ho chuka hai.”
 
-Because once you realize someone is trying, disappointment becomes difficult to express honestly.
+“Oh.” Another pause. “I’m sorry, yaar.”
 
-So I acted normal.
+“No issues,” I said again, because I didn’t know what else to say that wouldn’t sound needy. “We’ll play another time.”
 
-Too normal.
+As if I hadn’t been waiting for the evening all day. As if I wasn’t already a few minutes away from the court. As if disappointment was something mature people could simply switch off the moment a call ended.
 
-“No issues,” I said casually. “We’ll play another time.”
+She said okay, thanked me once more, and hung up.
 
-As if I hadn’t been waiting for the evening all day.
-
-As if I wasn’t already a few minutes away from the court.
-
-As if disappointment was something mature people could simply switch off instantly.
-
-She suggested rescheduling, but Playo only allowed changes more than two hours before the game. It was already too late.
-
-So the booking stayed.
-
-The court stayed.
-
-Only the two people who planned to meet never did.
+The booking stayed. The court stayed. Only the two people who planned to meet never did.
 
 I remember sitting in my parked car for a few minutes after the call ended.
 
-Not heartbroken.
+Not heartbroken — that would’ve been too dramatic for what we actually were. Just… empty in a strangely embarrassing way. And still, stupidly, her face stayed with me — the same calm depth I had started noticing at the court, like an ocean I had only waded into and already wanted to cross.
 
-That would’ve been too dramatic for what we actually were.
-
-Just… empty in a strangely embarrassing way.
-
-Because the truth was difficult to explain even to myself.
-
-Why was I this affected?
-
-She was not my girlfriend.
-
-Not even a close friend.
-
-Just someone I had played badminton with twice.
+Because the truth was difficult to explain even to myself. Why was I this affected? She was not my girlfriend. Not even a close friend. Just someone I had played badminton with twice.
 
 Yet my entire evening had quietly shaped itself around seeing her.
 

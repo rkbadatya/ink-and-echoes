@@ -32,33 +32,21 @@ She sat down near the corner with the book resting lightly in her hands, complet
 
 There was something strangely calming about the way she looked while reading.
 
-Not glamorous in the loud cinematic sense.
+Not glamorous in the loud cinematic sense. Just quietly beautiful — the kind of beauty that does not announce itself, but settles in the room like late afternoon.
 
-Just quietly beautiful.
+Her hair was tied back casually, slightly messy, a few loose strands near her face softening every expression whenever she looked down at the pages. When she read, her face became still in a way that made time feel slower, like watching clouds cross a wide sky without needing to know where they were going.
 
-Her hair was tied back casually, slightly messy in a way that looked unplanned rather than careless. A few loose strands near her face softened her expressions whenever she looked down at the pages.
+She wore thin metal-frame glasses.
 
-She wore thin metal-frame glasses that somehow changed her entire presence.
+On her, they framed her eyes the way a window frames rain — not hiding anything, only making what was already there easier to see. Every time she lowered her gaze toward the book, warm bookstore light gathered briefly on the lenses, then broke when she looked up. Her lips stayed lightly pressed together in concentration, as if the outside world had temporarily stopped existing for her.
 
-Not because glasses automatically make someone attractive.
-
-But because on her, they made concentration visible.
-
-Every time she lowered her eyes toward the book, reflections briefly appeared across the lenses, hiding her expressions for a second before revealing them again. Her lips stayed lightly pressed together in concentration while reading, as if the outside world had temporarily stopped existing for her. And without realizing it, I kept watching those tiny shifts longer than necessary.
-
-Her clothes were simple.
-
-A black T-shirt with white detailing across the front.
-
-Loose light-colored pants.
-
-Comfortable.
-
-Practical.
+Her clothes were simple. A black T-shirt with white detailing. Loose light-coloured pants. Comfortable. Practical.
 
 Nothing about her looked like someone trying to impress anyone.
 
 And maybe that was exactly why I found it difficult to look away.
+
+I kept noticing small things — the curve of her cheek when she smiled at a line in the book, the way her throat moved when she swallowed and returned to the page, the smallness of her hands turning a corner as if the paper were something alive. Her eyes, even behind glass, still looked like deep water — not because they were dramatic, but because they seemed to hold more thought than one afternoon in a bookstore could explain.
 
 She looked comfortable existing as herself.
 
@@ -80,25 +68,23 @@ I think that was the first time I understood the difference.
 
 And somehow that started another long conversation.
 
-Characters.
+“Which book?” I asked, sitting down across from her.
 
-Favorite moments.
+“Harry Potter,” she said. “Always come back to this.”
 
-Opinions about different parts of the story.
+“First book or any?”
 
-The kind of conversation that doesn’t change your life but quietly makes you feel closer to someone while it’s happening.
+“Mostly the first. Comfort read.”
+
+We talked about characters, favorite moments, scenes we still remembered — the kind of conversation that doesn’t change your life but quietly makes you feel closer to someone while it’s happening.
 
 Books were one of the few places where our interests genuinely overlapped.
 
-Most of our personalities were actually very different.
+Most of our personalities were actually very different. She liked things I usually ignored. I liked things she didn’t particularly care about.
 
-She liked things I usually ignored.
+“You watch anime?” I asked at one point.
 
-I liked things she didn’t particularly care about.
-
-At one point I mentioned anime.
-
-She immediately said she wasn’t into it at all.
+She made a face. “Not at all.”
 
 Another difference.
 
@@ -138,6 +124,8 @@ The kind of smile that appears when someone is not fully posing for the camera b
 
 I remember staring at that photo afterward longer than necessary.
 
+On the screen she looked like a lake at evening — still, warm, holding the last light even after the sun had moved on. Not because the camera made her beautiful. Because it had caught a version of her I already knew was there and still felt surprised to see saved in pixels.
+
 Not because it was perfect.
 
 But because it felt real.
@@ -156,47 +144,35 @@ Then she asked me for a picture.
 
 I agreed, but instinctively hid part of my face while posing.
 
-She noticed immediately.
+“Why are you so conscious about photos?” she asked immediately.
 
-“Why are you so conscious about photos?” she asked.
+I didn’t really know how to answer that honestly. Maybe because photographs make permanence feel real. Maybe because I never liked seeing myself the way other people saw me. Maybe because hiding feels safer than being fully visible.
 
-I didn’t really know how to answer that honestly.
+“Bad photos come out when I pose properly,” I said, laughing it off.
 
-Maybe because photographs make permanence feel real.
+“Liar,” she said, but she was smiling.
 
-Maybe because I never liked seeing myself the way other people saw me.
+Then came one of the most awkward moments of the day — completely accidental.
 
-Maybe because hiding feels safer than being fully visible.
+I was scrolling through my phone to show her something else when she glanced at the screen.
 
-So I laughed it off instead.
+“Arre—” she said, then looked away too quickly.
 
-Then came one of the most awkward moments of the day.
+“What?”
 
-Completely accidental.
+“Nothing,” she said. “I didn’t see anything.”
 
-While going through something on my phone, she briefly saw a shirtless and pantless childhood photo of my niece.
+I knew exactly what had flashed for a second — an old childhood photo of my niece, shirtless, the kind of picture families keep without thinking and never show strangers.
 
-For a split second, her expression changed in surprise.
+“It’s my niece,” I said, too fast. “Childhood photo. Family album type—”
 
-I immediately tried explaining what it actually was.
-
-She quickly said she hadn’t seen anything.
-
-Which obviously meant she had.
+“Really, I didn’t see,” she said, already recovering. “Show me the book part again.”
 
 The awkwardness lasted only a few seconds externally.
 
-But internally, my brain replayed it much longer.
+But internally, my brain replayed it much longer — mostly because attraction makes embarrassment feel ten times larger than it actually is.
 
-Mostly because attraction makes embarrassment feel ten times larger than it actually is.
-
-After that, the conversation recovered slowly.
-
-We drifted back into books again.
-
-Into lighter topics.
-
-Into random discussions that allowed both of us to quietly move past the moment without acknowledging it further.
+After that, the conversation recovered slowly. We drifted back into books, into lighter topics, into random discussions that allowed both of us to quietly move past the moment without acknowledging it further.
 
 Eventually evening started fading into night.
 
@@ -236,13 +212,19 @@ Especially when someone is kind enough to adjust without making you feel guilty 
 
 Finally, I said I should leave.
 
-We exchanged a normal goodbye inside the bookstore.
+“Mujhe nikalna padega,” I said. “Thoda late ho jayega.”
 
-Nothing emotional.
+“Okay,” she said. “Drive safe.”
 
-Nothing cinematic.
+“Yeah. You’ll stay here?”
 
-Just another ordinary ending to an ordinary day.
+“Haan, thodi der aur padhungi. Plan tha na.”
+
+We exchanged a normal goodbye inside the bookstore — nothing emotional, nothing cinematic. Just another ordinary ending to an ordinary day.
+
+“Bye,” I said.
+
+“Bye,” she said.
 
 I walked out of the store and went downstairs.
 

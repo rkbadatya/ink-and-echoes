@@ -22,7 +22,13 @@ Getting ready near the court.
 
 For a moment, I forgot every sensible thought I had prepared on the drive there.
 
-Her whole appearance looked effortlessly put together. Matching T-shirt. Matching track pants. Proper sports shoes. Everything looked clean, coordinated, intentional. The kind of person who looked like they naturally belonged in places like this.
+Matching T-shirt. Matching track pants. Proper sports shoes. Everything clean, coordinated, intentional — the kind of person who belonged in places like this. And still, up close, she was more than that.
+
+Her eyes were like an ocean on a quiet day — not striking at first, but deep enough that you noticed only after you had already been looking too long. Dark, steady, holding more than they gave away. Her hair was tied back, a few strands loose near her face, soft as smoke against her skin. When she moved to pick up her racket, there was no hurry in her body. She looked like morning light through a half-drawn curtain — gentle, ordinary, and impossible to ignore once it was there.
+
+I had no right to stand there assigning metaphors to a stranger from Playo.
+
+I did it anyway.
 
 Meanwhile, I suddenly became painfully aware of myself.
 
@@ -48,7 +54,11 @@ Yet my brain stored it with unnecessary importance.
 
 We started playing singles.
 
-At first, badminton itself became an excuse to avoid conversation. Smashes, drops, missed returns — they filled the silence for us. We spoke only when needed.
+It became obvious within the first few rallies that she was not a good badminton player — not in the competitive sense. She missed easy returns. Her footwork was casual. She played the way someone plays when the point is not winning but unwinding. Later she would tell me she went swimming too, for the same reason. Movement. Quiet. An hour that did not ask anything from her except presence.
+
+Badminton, for her, was just another activity — relax time, not training.
+
+At first, the game became an excuse to avoid conversation anyway. Smashes, drops, missed returns filled the silence for us. We spoke only when needed.
 
 “Out.”
 
@@ -57,6 +67,8 @@ At first, badminton itself became an excuse to avoid conversation. Smashes, drop
 “My point.”
 
 Small words. Functional words.
+
+But between rallies, when she moved — hair slipping loose with each lunge, breath steady where mine was not, eyes narrowed at the shuttle with more effort than result — she looked different from the girl I had just met near the net. Not softer. More alive. Like wind caught in a field you pass every day and suddenly notice because the light changed.
 
 The funny thing is, before meeting her, I had imagined conversation would happen naturally. That we would slowly become comfortable. That somewhere between rallies we would start talking about work, life, or random things people usually ask when they meet for the first time.
 
@@ -80,9 +92,21 @@ Or maybe I was expecting too much from someone who barely knew me.
 
 Still, I followed her toward the water station a few seconds later, pretending it was casual.
 
-She drank water quickly and started walking back almost immediately. I stayed there another moment, drinking slowly for no reason except delaying my own awkwardness. Then I returned too.
+“Tired?” I asked, because I couldn’t think of anything better.
 
-Nothing happened.
+“A little,” she said, filling her bottle. “You play well.”
+
+“Thanks.” I smiled. “You hold your own.”
+
+She laughed once. “I’m not here to be good. Bas thoda move ho jaye. Office se dimaag refresh ho jata hai. Swimming bhi karti hoon — usme zyada maza aata hai honestly.”
+
+Polite words on the surface. But they told me something useful: I had been treating the court like a stage. For her, it was closer to a walk or a pool lane — something you show up for because it clears the head.
+
+The kind of exchange people have when they don’t yet know whether they want to know each other beyond the game.
+
+She drank quickly and started walking back almost immediately. I stayed there another moment, drinking slowly for no reason except delaying my own awkwardness. Then I returned too.
+
+Nothing happened after that.
 
 No deep conversation.
 
@@ -108,13 +132,17 @@ I didn’t want to interrupt.
 
 But I also didn’t want to look like someone silently waiting around with no purpose.
 
-So I started explaining random things about what I did and why I was nearby. Meaningless conversation meant more to justify my presence than actually communicate anything important.
+So I started explaining random things about what I did and why I was nearby — where I worked, how I usually booked courts in this area. Meaningless conversation meant more to justify my presence than actually communicate anything important.
 
-Then I asked him if he played badminton and whether he’d join future games sometime.
+“You play badminton often?” I asked him.
 
-Before the conversation could go anywhere, Vaishnavi simply said,
+“Sometimes,” he said.
 
-“Let’s go.”
+“Maybe join a game sometime,” I added, trying to sound casual.
+
+Vaishnavi had been listening quietly. Then she looked at him, then at me, and said:
+
+“Chalo.”
 
 Not rudely.
 
@@ -126,7 +154,9 @@ And I understood.
 
 That was my signal to leave them alone.
 
-So I smiled, said bye casually, and walked back toward my car.
+“Cool,” I said. “See you. Bye.”
+
+I smiled because I didn’t know what else my face was supposed to do, and walked back toward my car.
 
 While driving out, I noticed them walking toward a Thar parked nearby.
 

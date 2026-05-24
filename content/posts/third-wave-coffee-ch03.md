@@ -22,33 +22,29 @@ And yet, I found myself checking my phone more often than usual.
 
 Just in case.
 
-A day or two after the game, we were discussing another booking.
+A day or two after the game, we were discussing another booking on WhatsApp.
 
-Somewhere in the conversation, I casually told her she could bring her husband along too. Maybe both of them could play singles while I booked another court.
+**Me:** Book kar doon court? Tum dono aa sakte ho — tum singles, usko bhi ek court. Husband ko bhi le aana if he plays.
 
 I don’t even know why I said _husband_ so confidently.
 
-Maybe because my brain had already completed the unfinished picture from that evening. The guy waiting near the court. The comfort between them. The Thar parked outside. The way she had said, “Let’s go.”
+Maybe because my brain had already completed the unfinished picture from that evening. The guy waiting near the court. The comfort between them. The Thar parked outside. The way she had said, “Chalo.”
 
 It all looked settled.
 
 Certain.
 
-She replied quickly.
+She replied within a minute.
 
-“He’s not my husband.”
+**Her:** He’s not my husband.
 
 That was it.
 
 No explanation after that.
 
-No:
+No _He’s my boyfriend._
 
-“He’s my boyfriend.”
-
-No:
-
-“He’s just a friend.”
+No _He’s just a friend._
 
 Nothing.
 
@@ -94,7 +90,65 @@ But her booking the game herself made it feel slightly different.
 
 Slightly mutual.
 
-While driving toward the venue that evening, I noticed her walking on the side of the road some distance ahead. Maybe three hundred meters away from the court.
+That evening, during the break between our second game, the heat inside the badminton court became unbearable.
+
+She looked around for a second and said, “Bahut garam ho raha hai andar. Chalo outside?”
+
+We stepped out near the swimming pool beside the court.
+
+The sudden cool air felt strangely peaceful after the noise inside. Water reflected the yellow lights around the pool, rippling quietly while people walked past us without paying attention.
+
+For the first time, we were talking without rackets in our hands.
+
+No score.
+
+No shuttle.
+
+No game interrupting the conversation every few minutes.
+
+Just the two of us standing there casually after sweating through a match.
+
+I don’t even remember how the topic shifted.
+
+I only remember observing her while she spoke.
+
+The way she paused briefly before answering something.
+
+The way she tilted her head slightly while listening.
+
+And especially the small nod she gave after someone finished speaking — as if she quietly acknowledged every sentence before replying.
+
+It felt oddly familiar.
+
+So I told her.
+
+“You know… the way you pause before talking, and that head nod after listening — you remind me exactly of one of my distant cousins.”
+
+For a second she looked surprised.
+
+Then she laughed softly.
+
+Not loudly.
+
+Not dramatically.
+
+Just that small amused laugh she had when something genuinely caught her off guard.
+
+And weirdly, that moment made her feel more real to me than anything before that.
+
+Not prettier.
+
+Not more attractive.
+
+Just more human.
+
+Until then, she had mostly existed in fragments inside my head. A badminton player. A pretty girl from Playo. Someone I was slowly becoming curious about.
+
+But standing there near the pool, listening to her speak casually about random things while warm air drifted through the chlorine smell of the evening, she slowly stopped feeling like an idea.
+
+And started feeling like a person.
+
+While driving toward the venue another evening, I noticed her walking on the side of the road some distance ahead. Maybe three hundred meters away from the court.
 
 For a second I slowed down automatically.
 
@@ -102,9 +156,19 @@ Then I honked lightly so she would notice.
 
 She turned.
 
-I rolled down the window and asked if she wanted to join.
+Even from a distance, in ordinary clothes, walking like she had nowhere to hurry to, she looked unfairly composed. The evening sun caught the side of her face for a second and turned her skin warm — like honey held up to light.
 
-She smiled politely and said she would rather walk.
+I rolled down the window.
+
+“Want a lift? Court almost aa gaya.”
+
+She smiled politely.
+
+“It’s okay. I’ll walk.”
+
+“Sure?”
+
+“Haan, walk comfortable hai.”
 
 That was all.
 
@@ -171,6 +235,7 @@ Not with confession.
 Not with certainty.
 
 But with attention slowly becoming habit.
+
 
 
 

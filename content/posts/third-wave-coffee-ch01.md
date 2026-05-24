@@ -28,9 +28,9 @@ And maybe that was the funny part.
 
 Because if someone had told me a few months earlier that a girl named Vaishnavi would someday say something like this to me, I would’ve laughed and moved on with my life.
 
-Back then, she was just another profile on Playo.
+That line belongs to a later day — one I have not reached yet in this story. What follows is where it actually began.
 
-13th March 2026.
+**13th March 2026.**
 
 A boring evening. One of those days where you keep opening apps not because you want to do something, but because you don’t want to sit alone with your thoughts. I opened Playo looking for badminton games nearby. Most games were already full. Some were too far away. Some had people I didn’t know and timings I couldn’t manage.
 
@@ -46,7 +46,9 @@ Her profile opened.
 
 Vaishnavi.
 
-Just a simple picture. Nothing dramatic. No pose trying too hard to impress people. But something about her face stayed longer than it should have. Maybe it was the smile. Maybe it was the eyes. Or maybe I was simply lonely enough to find meaning in ordinary things.
+Badminton and swimming were listed there among her interests — the way people list things they do to unwind, not things they are trying to master. Another profile on Playo. Another stranger in sports shoes. Nothing that should have mattered.
+
+Just a simple picture. Nothing dramatic. No pose trying too hard to impress people. But her eyes in that small frame looked deeper than a profile photo had any right to look — calm, like water that had found its level. Something about her face stayed longer than it should have. Maybe it was the smile. Maybe it was the way happiness seemed to sit on her features without asking for attention. Or maybe I was simply lonely enough to find meaning in ordinary things.
 
 I sent the request.
 
@@ -54,21 +56,21 @@ After some time, she accepted mine and another player’s request.
 
 That should’ve been the end of it.
 
-But I messaged her.
+But I messaged her on Playo anyway.
 
-Asked if the court was booked.
+**Me:** Court booked already?
 
-She replied casually, asking if I was available from six to seven.
+**Her:** Yeah. You free six to seven?
 
-I wasn’t.
+**Me:** Can’t make it today. Sorry.
 
-So I left the game.
+**Her:** Okay, no problem.
+
+I left the game.
 
 Strange how small moments decide whether two people become strangers forever or accidentally enter each other’s lives.
 
-The next day, on 14th March, I created a game myself.
-
-I sent the invite to her. Also asked if the other guy from the previous game could join. I don’t know why I did that. Maybe I genuinely wanted players. Maybe I just wanted another reason to talk to her without making it obvious.
+The next day, on 14th March, I created a game myself and sent her the invite. I also asked if the other guy from the previous game could join. I don’t know why I did that. Maybe I genuinely wanted players. Maybe I just wanted another reason to talk to her without making it obvious.
 
 That game never happened.
 
@@ -76,17 +78,17 @@ Another small failure.
 
 Another thing that should’ve ended there.
 
-But on 15th March, she messaged me herself.
+But on 15th March, she messaged me herself on WhatsApp — the first time our conversation had moved outside Playo.
 
-She asked if I was available for a singles game.
+**Her:** Singles game chalega kal? I’m free anytime after six.
 
 I still remember staring at the screen for a few seconds before replying. Not because it was some romantic moment. It wasn’t. But because things like that never happened to me. Girls didn’t usually message first. Definitely not for a one-on-one game. Definitely not after barely knowing me.
 
-She said she was available anytime after six.
+**Me:** Yeah, works. I’ll book and tell you.
 
-Then she told me to book the court and let her know.
+**Her:** Okay. Book karke bata dena.
 
-And then, casually, as if it meant nothing, she shared her number.
+Then, casually, as if it were only logistics, she sent her number.
 
 Her number.
 
