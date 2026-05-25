@@ -90,6 +90,8 @@ But her booking the game herself made it feel slightly different.
 
 Slightly mutual.
 
+When we were figuring out a good time, she said she'd prefer to play a bit earlier since it's hard for her to get home late in the evening. I was all set for the pick-up and drop-off, but she wasn't having it. It's too soon to bring that up.
+
 That evening, during the break between our second game, the heat inside the badminton court became unbearable.
 
 She looked around for a second and said, “Bahut garam ho raha hai andar. Chalo outside?”
