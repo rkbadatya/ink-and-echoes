@@ -82,7 +82,7 @@ But on 15th March, she messaged me herself on Playo.
 
 **Her:** Available today? I’m looking out to play singles.
 
-**Him:** Time?
+**Me:** Time?
 
 **Her:** Anytime post 6 is fine. preferably in between 6 to 9. Can you just book and let me know? xxxxxxxxx reach out on this number.
 
