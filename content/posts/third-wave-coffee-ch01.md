@@ -84,7 +84,7 @@ But on 15th March, she messaged me herself on Playo.
 
 **Me:** Time?
 
-**Her:** Anytime post 6 is fine. preferably in between 6 to 9. Can you just book and let me know? xxxxxxxxx reach out on this number.
+**Her:** Anytime post 6 is fine. preferably between six to nine. Can you just book and let me know? xxxxxxxxx reach out on this number.
 
 I still remember staring at the screen for a few seconds before replying. Not because it was some romantic moment. It wasn’t. But because things like that never happened to me. Girls didn’t usually message first. Definitely not for a one-on-one game. Definitely not after barely knowing me.
 
