@@ -78,17 +78,21 @@ Another small failure.
 
 Another thing that should’ve ended there.
 
-But on 15th March, she messaged me herself on WhatsApp — the first time our conversation had moved outside Playo.
+But on 15th March, she messaged me herself on Playo.
 
-**Her:** Singles game chalega kal? I’m free anytime after six.
+**Her:** Available today? I’m looking out to play singles.
+
+**Me:** Time?
+
+**Her:** Anytime post 6 is fine. preferably between six to nine. Can you just book and let me know? xxxxxxxxx reach out on this number.
 
 I still remember staring at the screen for a few seconds before replying. Not because it was some romantic moment. It wasn’t. But because things like that never happened to me. Girls didn’t usually message first. Definitely not for a one-on-one game. Definitely not after barely knowing me.
 
 **Me:** Yeah, works. I’ll book and tell you.
 
-**Her:** Okay. Book karke bata dena.
+**Her:** Cool. Done.
 
-Then, casually, as if it were only logistics, she sent her number.
+Casually, as if it were only logistics, she had sent her number.
 
 Her number.
 

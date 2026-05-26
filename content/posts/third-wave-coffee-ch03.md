@@ -24,7 +24,7 @@ Just in case.
 
 A day or two after the game, we were discussing another booking on WhatsApp.
 
-**Me:** Book kar doon court? Tum dono aa sakte ho — tum singles, usko bhi ek court. Husband ko bhi le aana if he plays.
+**Me:** Book kar doon court? Husband ko bhi le aana if he plays.
 
 I don’t even know why I said _husband_ so confidently.
 
@@ -90,6 +90,8 @@ But her booking the game herself made it feel slightly different.
 
 Slightly mutual.
 
+When we were figuring out a good time, she said she'd prefer to play a bit earlier since it's hard for her to get home late in the evening. I was all set for the pick-up and drop-off, but she wasn't having it. It's too soon to bring that up.
+
 That evening, during the break between our second game, the heat inside the badminton court became unbearable.
 
 She looked around for a second and said, “Bahut garam ho raha hai andar. Chalo outside?”
@@ -148,7 +150,7 @@ But standing there near the pool, listening to her speak casually about random t
 
 And started feeling like a person.
 
-While driving toward the venue another evening, I noticed her walking on the side of the road some distance ahead. Maybe three hundred meters away from the court.
+While driving toward the venue for the 2nd game in the evening, I noticed her walking on the side of the road some distance ahead. Maybe three hundred meters away from the court.
 
 For a second I slowed down automatically.
 
@@ -198,7 +200,7 @@ Even though it had.
 
 So we played again.
 
-This time the awkwardness was lighter.
+The 2nd time the awkwardness was lighter.
 
 Not gone.
 
@@ -208,7 +210,7 @@ We still didn’t talk much outside the game. Most conversations remained about 
 
 But familiarity had started forming quietly between those small exchanges.
 
-And somewhere between those two games, something dangerous began happening inside me.
+And somewhere between those two games, something began happening inside me.
 
 I started looking forward to her presence more than the sport itself.
 
