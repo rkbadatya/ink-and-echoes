@@ -182,7 +182,7 @@ What do normal people even do in these situations? If I went completely empty-ha
 
 In the end, my cowardice won, masked as maturity. I decided to bring nothing but my laptop, my worn-out notebook, and a brain completely fried from overthinking. Better to look unprepared than desperate. Underneath all of that frantic preparation sat one embarrassing truth: I was excited just to exist near her.
 
-On Thursday morning, around 11 in the morning I pinged her asking about the plan.
+On Thursday morning, around 11 I pinged her asking about the plan.
 
 **Her:** I have a meeting now. I am planning to start after may be like around 1ish.
 
