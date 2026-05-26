@@ -124,7 +124,7 @@ Another bahana.
 
 Or maybe she genuinely was busy. The problem was that my mind had stopped distinguishing between the two.
 
-I replied with something casual. *No worries. Some other time.* The way you respond when you don’t want to admit you feel rejected by a sentence that small.
+I replied with something casual. _No worries. Some other time._ The way you respond when you don’t want to admit you feel rejected by a sentence that small.
 
 By Tuesday afternoon, I had almost stopped expecting anything from any conversation with her.
 
@@ -168,27 +168,23 @@ She was right. She made decisions emotionally and quickly. I kept trying to stru
 
 So instead of trying again immediately, we settled on Thursday.
 
-Thursday arrived much slower than it should have.
+Thursday arrived much slower than it should have. For two days, the plan sat quietly in the back of my mind while I pretended to function normally around it. But inside, my brain was running a chaotic loop of calculations. This was the first time a girl had ever asked me to just... come meet her and work out of a café. No sports shoes, no rackets, no net dividing us. Just a table, two laptops, and hours of unstructured time. A dangerous question kept whispering in the back of my head, refusing to leave me alone: _Is this a date?_
 
-For two days, the plan sat quietly in the back of my mind while I pretended to function normally around it.
+I tried to beat the thought down with logic. _Of course it’s not a date._ She has a boyfriend—or whatever that guy with the Thar is to her. She was genuinely just wanting to let me experience what she enjoys doing, letting me into a quiet pocket of her routine. And maybe, because our badminton plans kept dissolving, she figured this was just an easier way for us to finally meet up once without the logistics failing.
 
-That’s the strange thing about anticipation. Externally, life continues exactly the same. Meetings happen. Work continues. Traffic exists. People talk. But internally, one future moment keeps replaying itself in the background of everything.
+It was a perfectly reasonable, entirely platonic explanation. But hope is an undisciplined thing. Another part of me kept arguing back. If it wasn't a date, why didn't she invite her boyfriend to sit with her? Why ask me?
 
-By then, this was no longer just badminton.
+The real panic set in when I realized I didn't know what my actions were supposed to be. If it _was_ a date, what was the protocol? Should I bring something?
 
-A badminton game lasts an hour.
+For a wild, embarrassing ten minutes on Wednesday night, I actually considered buying flowers. I even googled it, staring at photos of small, neat bouquets. _Too much. Definitely too much._ If I showed up to a Third Wave Coffee at eleven in the morning holding a bunch of lilies while she was trying to join a Slack call, I would look like a lunatic. It would tear down the wall of casual friendliness I had worked so hard to build.
 
-This was an entire workday together.
+What do normal people even do in these situations? If I went completely empty-handed, it felt too cold—like I was just a colleague joining her for a meeting. I needed something in the middle. Something that didn't make my intentions obvious, but still carried a tiny bit of thought. Something funny, maybe? A weird bookmark? A particular pen?
 
-That felt different.
+In the end, my cowardice won, masked as maturity. I decided to bring nothing but my laptop, my worn-out notebook, and a brain completely fried from overthinking. Better to look unprepared than desperate. Underneath all of that frantic preparation sat one embarrassing truth: I was excited just to exist near her.
 
-More personal.
+On Thursday morning, around 11 in the morning I pinged her asking about the plan.
 
-More dangerous.
-
-On Thursday morning, her message arrived:
-
-**Her:** Third Wave Coffee, Nexus Shantiniketan. WFH from here today. Join if you want.
+**Her:** I have a meeting now. I am planning to start after may be like around 1ish.
 
 I tried replying normally.
 
@@ -276,7 +272,7 @@ It felt more relaxed now.
 
 More lived-in.
 
-At one point she casually mentioned how safe it felt to leave laptops and belongings there while going around the mall.
+Once she casually mentioned how safe it felt to leave laptops and belongings there while going around the mall.
 
 I remember looking at our things lying openly on the table and realizing she trusted places more easily than I did.
 
@@ -305,6 +301,34 @@ When I told her I was thirty-three, she looked genuinely surprised.
 “You don’t look it,” she said.
 
 I laughed because people have said that before. But hearing it from her felt different somehow. As if she had been quietly placing me in a certain age bracket all along, and discovering I sat outside it required adjusting something small in her mental picture of me.
+
+To her, twenty-nine was a milestone she was still approaching—the age her boyfriend already was, a number that represented the immediate, heavy future of settling down, fighting family expectations, and making big adult decisions. But thirty-three? Thirty-three was firmly on the other side of that hill. To a twenty-seven-year-old, a thirty-three-year-old man isn't a peer you casually cross paths with on a sports app; he is someone who is supposed to have the answers sorted out. He is supposed to be steady, anchored, and entirely safe.
+
+I could see the subtle shift in her posture, a quiet realization that she was sitting next to someone who had lived through the exact mid-twenties anxieties she was currently drowning in.
+
+And underneath my polite smile, a sharper, more bitter truth settled in my chest.
+
+Discovering I was thirty-three didn't make me more attractive to her; it made me a safe harbor. It gave me a badge of reliability that completely sanitized me in her eyes. It meant she could lower her guard, invite me to sit beside her for a whole day, and confide in me with absolute freedom—because a mature, thirty-three-year-old guy would obviously understand the boundaries of a platonic friendship. He wouldn't do something foolish, like misinterpret her kindness or harbor a schoolboy crush.
+
+At twenty-seven, she still possessed the luxury of idealism, believing that boundaries were things people respected just because they were spoken aloud. At thirty-three, I knew how easily a lonely mind could tear those boundaries down.
+
+“Random question,” she said, shifting her tone to something lighter. “Are you good at English vocabulary?”
+
+I didn’t even have to think about it. “Nahi. I am very bad at it.”
+
+She blinked, completely caught off guard, and then broke into a genuine, surprised laugh.
+
+“You’re ridiculous,” she said, shaking her head. “Nobody actually answers like that.”
+
+“Like what? It’s the truth.”
+
+“People don’t say _‘very bad,’_” she said, mimicking a formal voice while leaning back in her chair. “If you ask anyone else, they’ll say _‘Yeah, I’m average,’_ or _‘I’m above average,’_ or _‘I manage.’_ They’ll protect their ego a little bit. But you? Direct _‘very bad’_? With so much confidence?”
+
+“Why lie?” I laughed, feeling the initial awkwardness of the morning completely melt off my shoulders. “If you ask me the meaning of a heavy word right now, my mind will go completely blank. Better to set the expectations at zero.”
+
+“Clearly,” she said, a sarcastic smile appearing on her face. “Writer ho tum, by the way. Remind me to never look at your search history. It’s probably just you googling basic dictionary definitions.”
+
+“Hey, that’s a trade secret,” I said.
 
 We talked about salary too.
 

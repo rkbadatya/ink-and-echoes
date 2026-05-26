@@ -74,7 +74,7 @@ While waiting for the food, the conversation shifted again.
 
 Maybe because we had already crossed into heavier territory upstairs. Or maybe because silence after honesty always searches for something lighter and fails to find it.
 
-She asked about my girlfriend.
+She asked about my relationships.
 
 The question came the way her earlier ones often did — direct, without cushioning.
 
@@ -86,25 +86,31 @@ She looked unconvinced.
 
 So I added, “The answer is probably already in that story I sent you. _Before the Train Left._”
 
-She raised her eyebrows slightly.
+She looked up, her eyes locking onto mine, stripping away the casual safety of the food court noise.
 
-“Woh?”
+She said, her voice steady. “I want to hear it from you.”
 
-“Haan. Pehla chapter.”
+The request caught me entirely off guard. Writing gives me control; it lets me edit my vulnerabilities, structure my silences, and present a version of myself that makes sense. Speaking in real-time doesn't allow for drafts.
 
-Then I asked if she had actually read it.
+“I’m bad at telling stories out loud,” I laughed weakly, dismissing it.
 
-For a second she looked like she was deciding how much truth the moment deserved.
+A distinct flash of disappointment crossed her face. It wasn’t anger but a sudden quiet closing of a door she had momentarily left open for me. She didn’t push or ask again; she simply accepted my excuse and let the subject drop. However, the air between us grew subtly heavier.
+
+A subtle distance crept into her expressions.
+
+There was a deafening silence of 50 long seconds. No one spoke and I was losing my nerve.
+
+Finally, I asked if she had actually read it.
+
+For a moment, she seemed to be deliberating how much truth the moment deserved.
 
 “Padha,” she said. “Sirf pehla wala.”
 
 Only the first one.
 
-Something changed after that.
+Something changed subtly after that.
 
-Very subtly.
-
-Until then, the conversation had been flowing naturally. But after mentioning the story, her expressions became quieter. She stopped looking directly at me as much. Her eyes stayed lowered more often. The energy from earlier had shifted slightly out of reach.
+Until then, the conversation had flowed naturally. But after mentioning the story, her expressions became quieter. She stopped looking directly at me as much and her eyes stayed lowered more often. The energy from earlier had shifted slightly out of reach.
 
 I asked when.
 
