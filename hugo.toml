@@ -9,12 +9,6 @@ buildDrafts = false
 
 [params]
   env = "production"
-
-  [params.assets]
-    favicon = "/favicon.svg"
-    favicon16x16 = "/favicon.svg"
-    favicon32x32 = "/favicon.svg"
-    apple_touch_icon = "/favicon.svg"
   description = "Stories, thoughts, and words that stayed."
   defaultTheme = "dark"
   ShowReadingTime = true
@@ -25,6 +19,13 @@ buildDrafts = false
   ShowToc = true
   TocOpen = false
   disableSpecial1stPost = true
+  mainSections = ["posts"]
+
+  [params.assets]
+    favicon = "/favicon.svg"
+    favicon16x16 = "/favicon.svg"
+    favicon32x32 = "/favicon.svg"
+    apple_touch_icon = "/favicon.svg"
 
   [params.homeInfoParams]
     Title = "Ink & Echoes"
