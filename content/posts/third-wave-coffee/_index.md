@@ -7,7 +7,3 @@ categories:
 cascade:
   hiddenInHomeList: true
 ---
-
-"Even if the world ended and only we remained," she said, "I'd still never love you."
-
-This is the story of what happened after those words — told over rallies, rides, and too many cups of coffee.
