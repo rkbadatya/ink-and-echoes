@@ -5,6 +5,8 @@ date: 2023-04-16
 categories:
   - story
 draft: true
+weight: 16
+aliases: ["/posts/once-again/"]
 ---
 
 Holidays are over. Many things happened in these days. It was like dream to be

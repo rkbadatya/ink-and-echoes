@@ -6,6 +6,8 @@ categories:
   - story
   - diary
 draft: true
+weight: 18
+aliases: ["/posts/story-of-an-evening/"]
 ---
 
 It is a fine afternoon. After watching movies for several hours, I am exhausted.

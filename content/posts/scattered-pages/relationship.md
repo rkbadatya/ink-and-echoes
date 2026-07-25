@@ -5,6 +5,8 @@ date: 2023-04-16
 categories:
   - story
 draft: true
+weight: 17
+aliases: ["/posts/relationship/"]
 ---
 
 Relationship…….

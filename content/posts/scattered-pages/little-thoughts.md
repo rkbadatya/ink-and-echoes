@@ -5,6 +5,8 @@ date: 2023-04-16
 categories:
   - story
 draft: true
+weight: 14
+aliases: ["/posts/little-thoughts/"]
 ---
 
 He seems to be in distress. He looks at the clock on the sky-blue painted wall

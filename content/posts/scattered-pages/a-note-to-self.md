@@ -5,6 +5,8 @@ date: 2023-04-16
 categories:
   - story
 draft: true
+weight: 12
+aliases: ["/posts/a-note-to-self/"]
 ---
 
 I have everything I wanted, and still something feels missing.

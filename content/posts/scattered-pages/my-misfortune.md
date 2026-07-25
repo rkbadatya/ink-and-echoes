@@ -5,6 +5,8 @@ date: 2023-04-16
 categories:
   - story
 draft: true
+weight: 15
+aliases: ["/posts/my-misfortune/"]
 ---
 
 They were there but their existence didn't change anything. They were ready to
