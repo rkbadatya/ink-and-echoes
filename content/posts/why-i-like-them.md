@@ -1,6 +1,6 @@
 ---
-title: Why I like them
-description: Why I like them
+title: Why I Like Them
+description: On not choosing one best friend when many will do — and what Santosh, Dushmanta, Amit, and Anand each taught without knowing they were teaching.
 date: 2023-04-14
 categories:
   - story
@@ -8,48 +8,18 @@ categories:
 draft: true
 ---
 
-### I LIKE THE WAY THEY ARE
+### I Like the Way They Are
 
-               To me it’s the most difficult task to answer someone to his/her
-question about my best friend. I don’t have a best friend and neither have I
-wished any. Actually why would I like to have one when I can have so many good
-friends. There are many advantages of having so many friends. You can have so
-many fights. Some support you and some oppose you. Many opinions, mass work and
-you will experience it when you get involved in it.
+To me, it is the most difficult task to answer when someone asks about my best friend. I do not have a best friend, and neither have I wished for one. Actually, why would I like to have one when I can have so many good friends?
 
-               Santosh, you must have remembered our first meeting. Frankly I
-didn’t know that time that you are so talented and innovative and would be the
-topper. I am lucky that you opened the friendship hand first without which I
-would have been ignorant of the college life. You can forget the things I get
-from you, but in the end I keep them safe to remember when we can’t be near.
-That one phone call changed my life for which I am heartily grateful to you. I
-always see the leading quality in you. You hardly speak about you past life that
-disgrace my. I feel like getting angry on you most of the time. I remember once
-I asked you “What is the thing you are selfish about?” and you answered
-“Eating “. But I couldn’t find a chance to test your selfishness.
+There are many advantages of having so many friends. You can have so many fights. Some support you; some oppose you. Many opinions, mass work — and you will experience it when you get involved in it.
 
-             Dushmanta, I can’t say if you remember our first meeting. I am
-telling you I didn’t have any great impression upon you. I thought you are a
-simple student like anyone else in the college. I taught the maturity from you
-“The strength to withstand the situation and talk from the heart”. I can’t be
-angry on you even if I forcibly try to sometimes. Don’t blame me, sometimes I
-can’t understand what you say but soon realise that you said the truth because
-you tell it smoothly and God know if he can understand? 
+**Santosh** — you must remember our first meeting. Frankly, I did not know at that time that you were so talented and innovative, and would become the topper. I am lucky that you opened the hand of friendship first. Without that, I would have remained ignorant of college life. You can forget the things I get from you, but in the end I keep them safe — to remember when we cannot be near. That one phone call changed my life, for which I am heartily grateful to you. I always see the leading quality in you. You hardly speak about your past life — that distresses me. I feel like getting angry at you most of the time. I remember once I asked you, "What is the thing you are selfish about?" and you answered, "Eating." But I could not find a chance to test your selfishness.
 
-             Amit, I salute you for the life you have. If I was in your place I
-am sure of going mad. Having a clear description about anything you want to know
-is something that you are best in. To handle so many hurdles in life and still
-stand still. Well I won’t hide it that you are good in talking, pursuing. But
-sometimes I feel angry one you whose reason I can’t explain, you should better
-understand. The most important thing that I like in you is the way you tell life
-story or real life story and I enjoy silently listen to them.
+**Dushmanta** — I cannot say if you remember our first meeting. I am telling you, I did not have any great impression of you. I thought you were a simple student like anyone else in the college. I learnt maturity from you — the strength to withstand the situation and talk from the heart. I cannot be angry at you, even if I forcibly try to sometimes. Do not blame me — sometimes I cannot understand what you say, but soon I realise you spoke the truth, because you tell it smoothly. God knows if anyone else can understand?
 
-            Anand, I will not say that I know everything about you but to me you
-are most mysterious man till date after my dad. I liked the way you treat me. I
-learnt the basic of friendship from you. I never saw you being aggressive.
-Although all of us were there but you were the person who helped I felt proud
-that we have still friends who helps.
+**Amit** — I salute you for the life you have. If I were in your place, I am sure I would go mad. Having a clear description about anything you want to know is something you are best at. To handle so many hurdles in life and still stand still — well, I will not hide it that you are good at talking, at pursuing. But sometimes I feel angry at you, for reasons I cannot explain. You should understand better. The most important thing I like in you is the way you tell a life story, or a real-life story — and I enjoy silently listening to them.
 
- I wish I could be each of them in my life at least once. Please don’t compare
-or take it personally. Even though I write something about someone that doesn’t
-mean they are like it, maybe they are much more better than my experience.
+**Anand** — I will not say that I know everything about you. But to me, you are the most mysterious man till date, after my dad. I liked the way you treat me. I learnt the basics of friendship from you. I never saw you being aggressive. Although all of us were there, you were the person who helped — I felt proud that we still have friends who help.
+
+I wish I could be each of them in my life, at least once. Please do not compare or take it personally. Even though I write something about someone, that does not mean they are only like that — maybe they are much more better than my experience.
