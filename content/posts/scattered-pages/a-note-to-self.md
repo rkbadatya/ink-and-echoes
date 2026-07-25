@@ -4,7 +4,7 @@ description: A restless inventory of having everything and still feeling incompl
 date: 2023-04-16
 categories:
   - story
-draft: true
+draft: false
 weight: 12
 aliases: ["/posts/a-note-to-self/"]
 ---

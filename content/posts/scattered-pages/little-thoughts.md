@@ -4,7 +4,7 @@ description: Little Thoughts
 date: 2023-04-16
 categories:
   - story
-draft: true
+draft: false
 weight: 14
 aliases: ["/posts/little-thoughts/"]
 ---

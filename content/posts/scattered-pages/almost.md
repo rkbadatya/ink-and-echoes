@@ -5,7 +5,7 @@ date: 2023-04-14
 categories:
   - story
   - diary
-draft: true
+draft: false
 weight: 11
 aliases: ["/posts/almost/"]
 ---

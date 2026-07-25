@@ -1,27 +1,27 @@
 ---
 title: Once Again
-description: Once Again
+description: Holidays end, loneliness returns, and a first step that conservative minds may never accept.
 date: 2023-04-16
 categories:
   - story
-draft: true
+  - diary
+draft: false
 weight: 16
 aliases: ["/posts/once-again/"]
 ---
 
-Holidays are over. Many things happened in these days. It was like dream to be
-with friends and celebrate. To make happy someone, to be happy with the ones you
-love, care about. Day and night there was a loneliness supressed inside the
-Heart. Life thirst of sacredness, fear of losing and sadness roaming around with
-a thought that being unable to reach the destination even if it was seem to be
-near in the path that was pre-chosen.  
+The holidays are over.
 
-No longer could it last. It was better to be far away. Away from the Heart, Away
-from the joy, Away from Soul. That was the feeling one could have ever get. May
-be in another way or the same. But it would occur at least once. When it is
-easier, it gets tough. The toughest moments are still to come.
+Many things happened in those days. It felt like a dream — to be with friends, to celebrate, to make someone happy, to be happy with the people you love and care about.
 
-Who will believe it? Can they accept which is outranging their conservative
-mind-sets? Can I make them accept it? It is not the first time anyone is being
-confused. But to me it is the First step of my life that will certainly lead to
-my target.  
+Yet day and night, loneliness stayed suppressed inside the heart. A thirst for something sacred. Fear of losing. Sadness walking beside the thought that you cannot reach the destination even when it seems near on a path already chosen for you.
+
+It could not last.
+
+It was better to be far away — away from the heart, away from joy, away from the soul. That is a feeling one gets at least once, in one form or another. When things seem easier, they turn tough. The toughest moments are still to come.
+
+Who will believe it?
+
+Can they accept what outranges their conservative mindsets? Can I make them accept it?
+
+It is not the first time anyone has been confused. But for me, this is the first step of my life that will certainly lead to my target.

@@ -1,24 +1,25 @@
 ---
-title: Story Of An Evening
-description: Story Of An Evening
+title: Story of an Evening
+description: A balcony, light rain, and the uncontrolled traffic of thoughts in a tired afternoon.
 date: 2023-04-14
 categories:
   - story
   - diary
-draft: true
+draft: false
 weight: 18
 aliases: ["/posts/story-of-an-evening/"]
 ---
 
-It is a fine afternoon. After watching movies for several hours, I am exhausted.
-I am thinking of having a nap. But I am feeling a slight headache on my left
-forehead. I open the door to the balcony, pull a chair, and sit stretching my
-legs on another chair. Half of my legs are inside the room. I look at the sky,
-trees, and buildings. A cool breeze is blowing. I feel warm and cold at the same
-time. I see rain is spraying outside. Half of the balcony is wet. Cloud is
-moving slowly, but speeding the pace. I see one black dog running up the stairs
-of a building followed by another. They vanish in the top room of the building
-just to reappear and repeat the same process again and again. A bird is flying
-peacefully while another one is sitting on top of a water tank. A lot is going
-on in this small head of mine. The flow of uncontrolled thoughts. Switching from
-one to another within a fraction of a second.
+It is a fine afternoon.
+
+After watching movies for several hours, I am exhausted. I think of taking a nap, but a slight headache pulses on my left forehead. I open the balcony door, pull a chair, and sit with my legs stretched across another. Half my legs remain inside the room.
+
+I look at the sky, the trees, the buildings. A cool breeze blows. I feel warm and cold at the same time.
+
+Rain sprays outside. Half the balcony is wet. Clouds move slowly, then faster.
+
+A black dog runs up the stairs of a building. Another follows. They vanish into a top room, then reappear and repeat the same circuit again and again.
+
+A bird flies peacefully. Another sits on top of a water tank.
+
+A lot is going on in this small head of mine — uncontrolled thoughts, switching from one to another within a fraction of a second.

@@ -1,44 +1,35 @@
 ---
 title: My Misfortune
-description: My Misfortune
+description: On missing the one chance, finding a second spark, and reaching the target only to watch it vanish.
 date: 2023-04-16
 categories:
   - story
-draft: true
+  - diary
+draft: false
 weight: 15
 aliases: ["/posts/my-misfortune/"]
 ---
 
-They were there but their existence didn't change anything. They were ready to
-die for me but it was too late for that. They expected something from me which I
-could never give them. Was that my fault or theirs? Who can answer? I was
-surrounded by all of them but still there was something missing and the worst
-part was that I couldn't understand why I didn't remember what I was missing in
-my life. I always scared of the word "LIFE".
+They were there, but their existence changed nothing.
 
-I have nothing to do in this life or neither could I do what I was supposed to
-do at that moment. People say use the opportunity at the right time and you
-can’t imagine where it will take you to. I guess I missed that opportunity, the
-only one which each get only once in their life.
+They were ready to die for me, but it was too late for that. They expected something from me I could never give. Was that my fault or theirs? Who can answer?
 
- Still I continued and waited if I can get a second chance. But even the chance
-wasn’t so kind to me. There was a moment when I lost all my hope and wanted to
-end this life span. And miracle happened. Was it my destiny or grace of mighty
-“GOD”? I was totally unaware of that. It was something like I could have never
-guessed. But still it was. It created a spark in me to take the last chance if I
-can give this a shot. It gave me courage, brave, awareness, thought and most
-importantly a target that I missed before. That target was achievable but the
-step I was at that moment was not easy for a good start up. But something which
-was with me, for me provided fuel to that spark and sooner the condition favored
-the progress. It was a consistent and long run process and I needed constant
-support which I got from it.
+I was surrounded by all of them, and still something was missing. The worst part was that I could not remember what it was. I have always been afraid of the word *life*.
 
-And finally it made me reach at that point which I dreamed for years. I was
-stepping forward one after another step and I could clearly hear the voice of my
-target. It was calling me. It made me unstoppable. I started running and felt
-less weighted. Suddenly I was supposed to touch my destiny and show it to my
-inspiration it was gone. I couldn’t see it anymore. I was shocked, I was sad, I
-was nervous, I was scared, and I was feeling its presence in my heart but
-couldn’t see its physical structure. Two drops of tear flow out of my eye. They
-were my gratitude to it. Although you couldn’t be mine still I wish you can
-change life of many who are like me.
+I had nothing to do in this life — or rather, I could not do what I was supposed to do at that moment. People say use the opportunity at the right time, and you cannot imagine where it will take you. I guess I missed that opportunity — the only one each person gets once.
+
+Still, I continued. I waited for a second chance. The chance was not kind either.
+
+There was a moment when I lost all hope and wanted to end this life span. Then something happened. A miracle — or the grace of God. I was totally unaware. It was something I could never have guessed. Yet there it was.
+
+It created a spark in me to take one last chance, if I could give this a shot. It gave me courage, awareness, thought, and most importantly a target I had missed before. The target was achievable, but the step I stood on was not an easy place to start from. Something that was with me — for me — provided fuel to that spark. Soon the conditions favored progress.
+
+It was a consistent, long run. I needed constant support, and I got it from that something.
+
+Finally I reached the point I had dreamed of for years. I stepped forward, one step after another. I could hear my target calling. It made me unstoppable. I started running and felt lighter. Suddenly I was about to touch my destiny — to show it to my inspiration.
+
+It was gone.
+
+I could not see it anymore. I was shocked, sad, nervous, scared. I could feel its presence in my heart but not its physical form. Two tears fell from my eyes. They were my gratitude.
+
+Although you could not be mine, I wish you can change the life of many who are like me.
