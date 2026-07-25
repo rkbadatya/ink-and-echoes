@@ -1,77 +1,37 @@
 ---
-title: A boy’s Confession
-description: He confesses.
+title: Who am I
+description: Born with memory of heaven and no way to say so — only crying. A first-person meditation on birth, mother, and the question: Who am I?
 date: 2023-04-16
 categories:
   - story
-draft: true
+draft: false
 ---
 
-Who am I? The first ever question I asked myself when I landed on earth from the wonderland of my mother’s stomach though stomach is’t the real word to be used. I imagined nothing but some of the creatures moving around me and showing some kind of gestures. I did’t know what they really were and what they were doing. The one thing I observed that they all were harmless to me. Someone picked me up, touched my check, and oscillated me back and forth keeping my delicate body on that strange creature’s long half bending hands. I could see, means I was seeing many colors, a lady lying on a bed and people around with faces like, thought I was unaware of what the earthly materials were called as.
+Who Am I?
 
-GOD said me to enjoy the next 68 years in earth within a new environment. It was
-new to me, but I had heard about it in heaven. There were angels who used to
-take care of me, giving me what I wanted. In heaven we are always satisfied, so
-there is nothing to do much. I asked god who would take care of me in the earth.
-He replied that, “I have created a creature who is his best creation in the
-whole universe who are called as humans.” I asked a lot about humans but he said
-to experience them in real when I would born in earth. Sooner I was born in a
-Hospital ward.
+That was the first question I asked myself when I landed on earth — though _landed_ is too neat a word for what happened when I came out from the wonderland of my mother’s body. _Stomach_ is not the correct word, I know that much now, but at that time I had no name for the dark, warm place where I was kept.
 
-Before that when I was in a balloon like cover I was not more than a paralyzed
-body, a little difference was I was being feed through a pipe which was
-connected to my host, my mother. I didn’t know if I was breathing, if I was
-eating or not, but I was experiencing a warmer environment and slippery
-surroundings. Every now and then I was impacting on the cover wall and getting
-deflected to the opposite direction in a slow fluid motion. Sometimes I used to
-hear some voices that gave me a satisfaction and sometimes anxiety. I could feel
-someone talking to me but the particular was unspecified.
+I imagined only this: some creatures moving around me, making gestures I could not read. One thing I noticed — they were not harming me. Someone picked me up, touched my cheek, and oscillated me back and forth, holding my delicate body on those long, half-bending hands of a strange creature. I could see — meaning, colour was coming to me before meaning — a lady lying on a bed, people standing around with faces I did not understand, though I did not yet know what earthly things were called.
 
-After some months, after several moments of fight against something, my mom gave
-birth me. I could hear her screaming, crying, fighting for survival of both of
-us, but could do nothing and I had no idea what was she going through. Some
-person with white coat had taken me to her hand and handed me over to my mom. I
-saw the first human creature who seemed so close to me, who went through
-suffering for getting me in her hand, who tolerated 9 months of insignificant
-pain to touch my little hand, to kiss on my forehead for my security, to show
-her legal right on me. Again the same thought haunted me, “Who am I?”
+God had told me to enjoy the next sixty-eight years on earth, in a new environment. New to me, yes — but not entirely unknown. In heaven also we had heard something about this place. There, angels used to take care of us, giving whatever was needed. In heaven we are always satisfied, so there is not much to do, actually. I asked God who would take care of me on earth. He said, “I have created a creature — My best creation in the whole universe — called human.” I asked many things about humans, but He only said, “You will understand when you experience them.”
 
-I felt fresh air, breathing, smelling. I saw things. I experienced touches, some
-good and some undefined. I was washed clearly and covered with a new kind of
-things which was no more fluid, I was not in any slow motion movements, and I
-was wrapped by a new thing that was called clothes. It was soft but not like the
-one in my mom’s body. But I noticed a weird gesture from the people around and
-too from my mother. I couldn’t understand why the sudden change. Something got
-hit on my back. It was not in my mental favor. So I instantly reacted by crying
-with a loud sound. I wasn’t got introduced with that yet. But later I learnt
-that it was called as crying. And then everyone’s expression changed to the
-previous smile like faces.
+Sooner, I was born in a hospital ward.
 
-After some moments, I was again given back to my mom. Most of the human left me
-with my mother except of a human, who was called nurse. She showed something to
-do and mom learnt it patiently. Her face got lightened and also there was marks
-of uneasiness. The nurse made her comfortable by putting her hand on my mom’s
-shoulder. My mom brought me closer and laid me down on her lap. It was like a
-frame where I was fit right. She kept her one hand on my back of head, and feed
-me with something ii never knew. Later I got to know that she made every
-sacrifice she had to do for me. Something was getting into my throat, it was
-warm liquid fluid which later I got to know as milk, mom’s body nutrients for
-required for my living. After some times, I was full, and the starving was no
-more. My mom brought me up and kissed on my every part of face. There was an
-exhausted expression in her face which soon changed into a satisfied womanhood
-happier one.
+Before that, when I was inside a balloon-like cover, I was nothing more than a paralysed body — only difference being, I was being fed through a pipe connected to my host, my mother. I did not know whether I was breathing or eating, but I was experiencing a warmer environment and slippery surroundings. Every now and then I would hit the cover wall and get deflected in the opposite direction, in slow fluid motion. Sometimes I used to hear voices that gave satisfaction; sometimes, anxiety. I could feel someone talking to me, but who it was — that was not clear.
 
-I was taken to a structure called home by some vehicle called car. As I entered
-the house I was welcomed by many beings, some were very tall, some were a few
-inches taller to me and some were really taller. Some had beard on their face
-some didn’t, some had long hair some didn’t. People were wearing different
-clothes. I wanted to touch those creatures, feel them, and understand them. So I
-pointed my fingers at someone or something, and every time one or other would
-take me to them and carry on their shoulder. Some used to swing, some used to
-keep me safe. Some pinched my nose, some squared my mouth, some tickled, and
-some moved their fingers around my stomach. Some feelings were worth
-experiencing and some were unhabituated. To protest against some feelings, I
-used to say, “Don’t touch my nose every second.” “Don’t put your finger in my
-mouth, it’s salty.” “Don’t swing me up, I feel lost in vacuum.” But every time I
-heard only one thing, me crying. And there was no way those human creature could
-understand me. There was a communication problem.
+After some months, after several moments of fighting against something, my mother gave birth to me. I could hear her screaming, crying, fighting for the survival of both of us — but I could do nothing, and I had no idea what she was going through. Some person in a white coat took me in his hands and handed me over to my mother. I saw the first human creature who seemed so close to me — who had gone through suffering to get me in her hand, who had tolerated nine months of pain to touch my little fingers, to kiss my forehead for my security, to show her right over me.
+
+Again the same thought came: _Who am I?_
+
+I felt fresh air — breathing, smelling. I saw things. I experienced touches, some good and some I could not name. I was washed properly and covered with a new kind of thing — no more fluid, no more slow motion. I was wrapped in something called clothes. Soft, but not like the softness inside my mother’s body.
+
+Then I noticed a strange change in the faces around me — even on my mother’s face. Something hit my back. It was not in my favour, mentally speaking. So I reacted instantly, with a loud sound. I was not yet introduced to that thing. Later I learnt it is called crying. And then everyone’s expression changed back to the earlier smile-like faces.
+
+After some time, I was given back to my mother. Most of the people left — only one human remained, who was called nurse. She showed something; my mother learnt it patiently. Her face got lightened, but marks of uneasiness were also there. The nurse made her comfortable by keeping a hand on my mother’s shoulder. My mother brought me closer and laid me on her lap — like a frame where I fit exactly. She kept one hand on the back of my head and fed me with something I had never known before. Later I came to know she made every sacrifice required for me. Something warm entered my throat — liquid, her body’s nutrients, what we call milk. After some time I was full; the starving was no more. My mother lifted me and kissed every part of my face. Exhaustion was sitting on her face, but soon it changed into a satisfied, happier womanhood.
+
+Then I was taken home in a vehicle called car. As I entered the house, many beings were waiting — some very tall, some a few inches taller than me, some really tall. Some had beard, some did not; some had long hair, some did not. People were wearing different clothes. I wanted to touch those creatures, feel them, understand them. So I pointed my finger at someone or something, and every time one or other person would take me near them and carry me on their shoulder. Some used to swing me; some used to keep me safe. Some pinched my nose, some shaped my mouth, some tickled me, some moved fingers around my stomach. Some feelings were worth experiencing; some I was not habituated to.
+
+Inside, I wanted to say, “Don’t touch my nose every second.” “Don’t put your finger in my mouth — it is salty.” “Don’t swing me up; I feel lost in vacuum.” But every time they heard only one thing: my crying. There was no way those human creatures could understand me. Communication problem was there from the beginning only.
+
+And still the question remained: _Who am I?_
+
