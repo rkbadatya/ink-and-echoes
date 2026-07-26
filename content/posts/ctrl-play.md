@@ -7,6 +7,7 @@ categories:
   - story
   - diary
 draft: false
+aliases: ["/posts/the-first-meet/"]
 ---
 
 **"How about a cup of coffee this evening?"** she asked enthusiastically.

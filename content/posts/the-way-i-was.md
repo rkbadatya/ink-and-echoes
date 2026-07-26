@@ -6,7 +6,7 @@ categories:
   - story
   - diary
 draft: false
-aliases: ["/posts/i-wasnt-like-what-i-am-today/"]
+aliases: ["/posts/i-wasnt-like-what-i-am-today/", "/posts/the-way-i-was/"]
 ---
 
 I wasn't the same as I am today.

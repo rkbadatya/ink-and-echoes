@@ -5,6 +5,7 @@ date: 2017-06-10
 categories:
   - story
 draft: false
+aliases: ["/posts/breakup-story/"]
 ---
 
 With a trembling heart, bent shoulders, curled hands, weakening legs, a defeated mind, and a hollowed face, he stands on the beach, staring at the limitless continuity of the sea. His mind keeps circling back to the fading memories of her. She was beautiful—even though her face now appears blurred in his mind. He can’t clearly recognize her, partly because of the sharp pain throbbing in his head as he strains to understand what’s going on inside it.

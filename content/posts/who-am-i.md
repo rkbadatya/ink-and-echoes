@@ -5,6 +5,7 @@ date: 2023-04-16
 categories:
   - story
 draft: false
+aliases: ["/posts/a-boys-confession/"]
 ---
 
 Who Am I?

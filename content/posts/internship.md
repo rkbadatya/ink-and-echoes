@@ -5,6 +5,7 @@ date: 2023-04-16
 categories:
   - story
 draft: false
+aliases: ["/posts/short-story-internship/"]
 ---
 
 Characters:
