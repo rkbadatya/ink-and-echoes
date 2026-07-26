@@ -38,8 +38,6 @@ This is what people call the group of ADARS — Amay, Dev, Ankur, Ronak, Shreyas
 
 My friends did not know about my crush or my past. I never let them. I hated when people appended my name to someone else's for amusement.
 
-Once, standing outside the Communication Lab, DKD sir said I was looking decent. I thought I might impress him. The grand viva spoiled that hope.
-
 In Biswal sir's class, Shreyash and I sat on the front bench near the entry gate. Seniors roamed outside as always. Shreyash looked out once, twice, five times. Sir noticed. He came forward, threw Shreyash's notebook outside, and ordered him out. Shreyash could not attend class that day.
 
 In the DAA viva, Amay asked us for the recursive expansion of merge sort from inside the chamber. We were about to help when he went back in. Sir entered. I turned. I was afraid. I do not remember exactly what he said, only that I decided never to cheat again.

@@ -8,29 +8,27 @@ categories:
 draft: false
 ---
 
-I loved her from the core of my heart without her knowledge.
+I did not know her name for a long time.
 
-She was not only pretty, smart, beautiful, elegant, fabulous — she was talented, intelligent, wise, educated in my dreams, though none of my dreams were going to become real. I did not know her name for a long time, or where she lived, or which branch she belonged to. I knew only that she was from my college. We had never spoken. Only eye meetings.
+I did not know which branch she was in, or where she lived, or what she was called. I knew only that she was from my college, that she took the same bus, and that the first time I saw her — sitting at the window seat, looking outside while I waited at the stop — something shifted in my chest that I could not name and could not put back.
 
-The first time I was graced by her appearance, she sat on the window seat of the bus, looking outside. I waited at the stop. As I entered, our eyes met. She wore a pink-white dress. I was breathless.
+She wore a pink-white dress. Our eyes met briefly as I boarded. She looked away. I found a seat and spent the rest of the ride not looking at her, in the specific way that means you are looking at nothing else.
 
-After some days I sat just behind her. Her chunni waved outside the window in the slow wind and the motion of the bus. I wanted to touch it — purely unethical. She looked outside, half her face covered by a handkerchief held in a smooth, delicate hand I had never touched. She seemed tense. I did not have courage to ask why.
+After some days I sat just behind her. Her chunni drifted outside the window in the slow wind and the motion of the bus. She looked out at something I could not see, half her face covered by a handkerchief she held in a hand I had never touched. She seemed far away from the bus, from the road, from everyone on it. I did not have the courage to ask why.
 
-Once she sat behind me with a friend. The sun burned through the glass. I closed the windows, sacrificing the wind I loved, so they would not suffer. Our eyes met for the tenth time. I felt like dying when it happened. I waited every night for the next day when I might receive that glance again. Till then, I had seen her smile twice.
+Once she sat behind me with a friend. The sun burned through the glass. I closed the windows — sacrificing the wind I had liked — so they would not have to sit in the heat. Our eyes met for the tenth time by my count. I had been counting. I went home and could not explain to myself why I still remembered the first nine.
+
+I waited every evening for the next day, when I might receive that glance again. Till then, I had seen her smile twice. Both times accidentally. Both times enough.
 
 ---
 
-Heart said explore whatever I felt. Mind said do not be stupid. Of course the heart is stupid.
+Every day I promised never to think about her, never to look at her. Every day I broke the promise before noon. The heart is not stupid — it simply refuses the jurisdiction of promises made by the brain at night, when everything seems manageable.
 
-Every day I promised never to think about her, never to look at her. Every day I broke the promise passionately. I did not have strength to avoid what my heart believed was love. There was not a second when I did not think about her.
+In the dreams she knew me. We talked, argued, reconciled, argued again. I lay on the floor of imagined rooms while she told me things about her past and her family. The dreams had a weight that reality refused to grant me. I would rather have stayed inside them than continue being a boy she passed on a bus without remembering.
 
-She was perfect — more perfect for me — but I was not. In dreams we were more than friends. We shared thoughts, fought, reconciled, fought again. If I had power, I would have stayed in those dreams rather than remain so far in reality.
+Someone always woke me up before I could find out how those dreams ended.
 
-I forgot what to eat and why to eat. Reading, friends, home — everything felt unnecessary. I lay on her lap for hours while she told me about her past, her family, her future.
-
-"Wake up, fool — it's just a dream."
-
-Someone always destroyed those dreams.
+She was perfect. That was the problem. Not her actual perfection — I knew nothing about her actual anything. But the perfection I had assembled from fragments: the window seat, the chunni in the wind, two accidental smiles. That assembled version was easier to love than a real person, because a real person might have replied, and I had no idea what I would have done if she had.
 
 ---
 
@@ -66,35 +64,25 @@ Same here.
 
 ---
 
-Meanwhile, on August 18th, 2013, my phone showed a birthday notification.
+On August 18th, 2013, my phone showed a birthday notification.
 
 Tulika Pattnaik.
 
-I sent a message: *Happy bd to bd girl… wish u a wonderful good morning.*
+I typed a message without thinking too hard about it — *Happy bd to bd girl… wish u a wonderful good morning* — the kind of line that costs nothing because nothing is at stake. She replied within seconds. I was mildly surprised. How was she browsing Facebook on her birthday instead of getting ready?
 
-She replied within seconds: *thanku.*
+We went back and forth for a few minutes. I asked if she was happy because it was her birthday, or happy because the day happened to be her birthday. She chose the obvious answer. I asked about temple plans. She had not even taken a shower. I teased her about manners. She replied in short bursts — efficient, unbothered, a little amused. Then:
 
-I was surprised. How was she browsing Facebook on her birthday instead of getting ready?
+*Ok bye… going to tuition.*
 
-"So fast to reply!!!!!!!!"
+*Bye.*
 
-"Hmm."
-
-I asked if she was happy because it was her birthday, or happy because the day happened to be her birthday. She chose the obvious answer. I asked about temple plans. She had not even taken a shower. I teased her about manners. She replied in short words — robot efficiency, nothing more.
-
-"Ok bye… going to tuition."
-
-"Bye."
-
-I closed Opera and rode to coaching with the bag on my back.
+I closed the app and rode to coaching with the bag on my back. The conversation had lasted eight minutes and cost me nothing — no rehearsal, no racing heart, no post-mortem analysis on the ride home. I had simply talked to a girl and then stopped talking to her, the way normal people do.
 
 With Tulika I could chat. With her I could type jokes and questions and survive awkward silence. With **her** — the one who mattered — I could not speak a single honest sentence in the real world.
 
-That was the pattern.
+That was the pattern, and I could see it clearly even then.
 
-I could be almost normal with girls who did not terrify me.
-
-I froze around the one who did.
+The problem was seeing it clearly changed nothing. I could be almost normal with the girls who did not terrify me. I froze around the one who did — and then went home and wrote about her in a diary no one would read, which was perhaps the most honest thing I knew how to do.
 
 ---
 

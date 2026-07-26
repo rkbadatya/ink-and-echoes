@@ -8,37 +8,25 @@ categories:
 draft: false
 ---
 
-After a great turnaround, my life seemed almost perfect.
+Before PMEC, I had a name.
 
-I had made friends who cared. College was not bad. Debasish sir had begun taking interest in me — impressed by my recent performance, still wondering how I had performed so badly in the exam before. My friends said the same things. I could not tell whether they meant it or were simply being kind. Either way, I enjoyed hearing it.
+Not just a name — a reputation. At Saraswati Vidya Mandir I was the boy teachers remembered, the one relatives pointed to during festivals, the district rank, the scholarship. When adults in my hometown spoke of success in front of their children, they sometimes said my name. I had never asked for that. It arrived the way early reputations arrive — through consistent performance and the absence of anything more interesting to talk about.
 
-My top concern became impressing sir. I finished tasks on time. In the first C++ lab, Priyadarsini submitted output first, which pushed me to show results first in group B for the classes that followed. Suvrajit once told me all my group members were in group A and I was left alone in B. I had no hard feelings. I had not yet considered myself part of any group — only friendship, casual and undefined.
+I was not popular. I was known. Those are different things, and the difference matters more than it sounds.
 
-Sometimes I answered DKD sir's questions. Most of the time I failed. One day, standing outside the Communication Lab with Shreyash, Amay, and others, DKD said I was looking decent. I thought I might impress him.
-
-Then came the grand viva.
-
-I got an E — though all my lab assignments were graded O and O++. In the C++ viva, Debasish sir said he had nothing to ask me. I had scored twenty out of twenty in internals. He was conducting the viva only for students who had attended less or scored lower. He did not want to give anyone a lesser grade.
-
-I was turning to leave when he stopped me.
-
-"Why are generic programs needed?"
-
-I answered.
-
-"What is it called to write a generic version of code?"
-
-I could not answer.
-
-He had taught it that very day. Because the viva was there, I had not paid attention. He called it code optimization. I had failed the faith he placed in me — again, as I usually did.
-
-Afterward we talked. He told me how to study, how to prepare. It felt less like a viva and more like guidance.
+Then I left for engineering college, and none of it followed me.
 
 ---
 
-But that was one season.
+PMEC received me the way large institutions receive everyone: without recognition, without ceremony, without the faintest acknowledgement that I had been anything anywhere before arriving. The syllabus did not wait for my history. The lecture halls did not care about district ranks. The boys around me had their own ranks from their own schools, their own reputations from their own towns. We were all equally unnamed here.
 
-The larger change came later — when Bhubaneswar entered my life.
+I discovered this slowly, the way you discover a chair has been pulled out from under you — only after you have already started to sit.
+
+My first real trip to Bhubaneswar felt different from anything before. Nervous. Excited. Unstable. I had to sleep early to wake early but habit would not allow it. I asked my younger brother to sit near me on the train. He put on headphones and ignored me. After half an hour of trying, I slept.
+
+In the morning I sat on the concrete verandah of Platform Number One, waiting for Shreyash.
+
+That day I learned things my previous life had not taught me: travelling in a DMU, searching for a vacant seat, running in rain, walking long distances, hostel routines, bargaining, eating outside home with friends, sharing one bed, waiting for a city bus, rushing dinner, sleeping before midnight. Small things. Ordinary things. But they belonged to a world I had not lived in.
 
 My first real trip there was not entirely new. I had visited in 2008 for CPYLS. Still, this felt different. Nervous. Excited. Unstable. I had to sleep early to wake early, but habit would not allow it. I asked my younger brother to sit near me on the train. He put on headphones and ignored me. After half an hour of trying, I slept.
 
@@ -46,7 +34,7 @@ In the morning I sat on the concrete verandah of Platform Number One, waiting fo
 
 That day I learned things my previous life had not taught me: travelling in a DMU, searching for a vacant seat, running in rain, walking long distances, hostel routines, bargaining, eating outside home with friends, sharing one bed, waiting for a city bus, rushing dinner, sleeping before midnight. Small things. Ordinary things. But they belonged to a world I had not lived in.
 
-At Saraswati Vidya Mandir, I had been someone. The topper. The boy teachers remembered. The one relatives pointed to when they spoke of success.
+The old version of me — the one with the rank and the scholarship story — had no use here.
 
 At PMEC, I was one among many.
 
@@ -58,8 +46,22 @@ Back on campus, I remained the boy who talked less and studied more — or prete
 
 Life was not simple. But it was not impossible either.
 
-I did not need to become someone else overnight. I only needed to sharpen what I already had — and learn, slowly, that being a stranger in a new place is not the same as being nobody.
+The contradiction settled in slowly. I had arrived carrying the quiet confidence of someone who had always known his rank. Now I sat in lectures trying to answer DKD sir's questions and failing most of them. One day he stopped outside the Communication Lab, looked at me, and said I was looking decent. I thought I might impress him.
 
-That distinction would take years to understand.
+Then came the C++ grand viva.
 
-For now, I was simply arriving.
+I got an E — though all my lab assignments were graded O and O++. Debasish sir said he had nothing to ask me. I had scored twenty out of twenty in internals. He was conducting the viva only for those who had attended less or scored lower, not wanting to give anyone a lesser grade. I was turning to leave when he stopped me.
+
+"Why are generic programs needed?"
+
+I answered.
+
+"What is it called to write a generic version of code?"
+
+I could not answer. He had taught it that very day. Because the viva was there, I had not paid attention. He called it code optimization. I had failed the faith he placed in me — again, as I usually did with the people who bothered to place it. Afterward we talked. He told me how to study, how to prepare. It felt less like a viva and more like guidance from someone who had already decided not to give up on me, even if I hadn't decided the same for myself.
+
+I did not need to become someone else overnight. I only needed to learn that the boy who had been a topper somewhere else was not automatically anything here.
+
+That distinction would take years to stop resisting.
+
+For now, I was simply arriving — with no one watching, no one waiting, and no name that meant anything yet.
