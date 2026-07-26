@@ -10,7 +10,7 @@ draft: false
 
 Finally, on 17th March, we played.
 
-I reached the venue without too many expectations. Until then, she was still just a person from Playo. A few chats. A phone number. A couple of cancelled plans. Nothing more. My brain kept reminding me not to create stories out of ordinary interactions.
+I reached the venue without too many expectations. Until then, she was still just a person from Playsports. A few chats. A phone number. A couple of cancelled plans. Nothing more. My brain kept reminding me not to create stories out of ordinary interactions.
 
 The badminton court was already noisy when I entered. Shuttlecocks flew across multiple courts under harsh white lights. Shoes squeaked against the wooden flooring. Somewhere nearby, people were laughing loudly between games.
 
@@ -24,7 +24,7 @@ Her hair was tied back, a few strands loose near her face, soft as smoke against
 
 When she moved to pick up her racket, there was no hurry in her body. She looked like morning light through a half-drawn curtain — gentle, ordinary, and impossible to ignore once it was there.
 
-I had no right to stand there assigning metaphors to a stranger from Playo. I did it anyway.
+I had no right to stand there assigning metaphors to a stranger from Playsports. I did it anyway.
 
 That, in retrospect, was the first warning. Not the way she looked. The way I had already begun to look at her.
 

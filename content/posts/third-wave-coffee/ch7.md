@@ -10,7 +10,7 @@ draft: false
 
 By then, the day had already stretched far longer than either of us had probably planned. Morning coffee had turned into lunch. Lunch had turned into work. Work had somehow turned into walking around the mall together like we had nowhere urgent to be.
 
-At some point we returned to the café again because she still had office work left. She opened her laptop moments after sitting down. Calls. Slack messages. Meetings. Spreadsheets. The calm efficiency of someone used to carrying responsibility without making noise about it. That was when she started talking more about work.
+At some point we returned to the café again because she still had office work left. She opened her laptop moments after sitting down. Calls. Skype messages. Meetings. Spreadsheets. The calm efficiency of someone used to carrying responsibility without making noise about it. That was when she started talking more about work.
 
 Not in a bragging way. More casually, between tasks. Her office. Her team. Deadlines. People depending on her for approvals. Escalations. Coordination. Watching her work up close, I understood why the team-lead role suited her.
 
@@ -66,13 +66,13 @@ Somewhere between the escalator and the bookstore entrance, she circled back to 
 
 I didn't say anything for a moment.
 
-Earlier in the day, somewhere between the MacBook section and the next aisle, I had said something half-casually — almost as a throwaway — about her applying for an SBI card so I could use the discount. The kind of line you say without weight. The kind of line you forget thirty seconds later. I had certainly forgotten it. I had said it the way men sometimes say things to women they're slightly enchanted by — not really meaning it, just enjoying the small intimacy of pretending we might be the kind of people who could ask each other for that sort of help.
+Earlier in the day, somewhere between the Dell XPS section and the next aisle, I had said something half-casually — almost as a throwaway — about her applying for an SBI card so I could use the discount. The kind of line you say without weight. The kind of line you forget thirty seconds later. I had certainly forgotten it. I had said it the way men sometimes say things to women they're slightly enchanted by — not really meaning it, just enjoying the small intimacy of pretending we might be the kind of people who could ask each other for that sort of help.
 
 She had not forgotten it.
 
 Somewhere between then and the bookstore, she had taken my throwaway sentence and quietly turned it into a real plan. She had calculated. She had decided it was workable. And now she was offering it back to me as if it were the most ordinary practical step in the world. Just two friends saving money. Just a card. Just a discount.
 
-The offer had quietly reversed the entire shape of the afternoon. An hour ago I had clumsily tried to gift her a MacBook and she had drawn a clean line under it. Now she was offering, in her own way, to do the practical version of the same gesture in the opposite direction — apply for a card she didn't need, just so I could save some money on a laptop I had been only half-seriously considering for myself.
+The offer had quietly reversed the entire shape of the afternoon. An hour ago I had clumsily tried to gift her a Dell XPS and she had drawn a clean line under it. Now she was offering, in her own way, to do the practical version of the same gesture in the opposite direction — apply for a card she didn't need, just so I could save some money on a laptop I had been only half-seriously considering for myself.
 
 I think I mumbled something neutral. A small *hmm,* or a half-smile, or one of those nothing-replies people give when their head is too busy translating a sentence to actually respond to it. She didn't push. She just kept walking, as if she had said something perfectly ordinary and didn't need it to land any particular way.
 
@@ -136,7 +136,7 @@ I took one shot and turned the screen toward her. We both looked at it together.
 
 "Arre, yeh toh waste ho gaya," I said. "Mere phone se leta hoon. Dekhiye kitna achha aayega."
 
-The words left my mouth before I could weigh them. Apple store mein iPhone ke baare mein jo bola tha, wahi tone phir aa gaya — helpful on the surface, slightly superior underneath. Mere phone ka camera better hai. Uske phone se achha photo aayega. Simple sentence. Possibly insulting if heard the wrong way.
+The words left my mouth before I could weigh them. Reliance Digital mein laptop ke baare mein jo bola tha, wahi tone phir aa gaya — helpful on the surface, slightly superior underneath. Mere phone ka camera better hai. Uske phone se achha photo aayega. Simple sentence. Possibly insulting if heard the wrong way.
 
 She laughed once, like she already knew I was going to keep trying until I got what I wanted. But there was a flicker of something else in it — not hurt exactly, more like *here we go again.*
 
@@ -162,7 +162,7 @@ She paused on the last photo. In it, she looked directly toward me while holding
 
 "Yeh theek hai," she said finally. "Baaki delete kar do."
 
-She didn't seem bothered. Or maybe she was simply choosing not to show it — the way she had at the Apple store when I joked about gifting the MacBook. Polite surface. Quiet filing away.
+She didn't seem bothered. Or maybe she was simply choosing not to show it — the way she had at the Reliance Digital when I joked about gifting the Dell XPS. Polite surface. Quiet filing away.
 
 I remember staring at that photo afterward longer than necessary.
 

@@ -27,19 +27,19 @@ And this is how most quiet disasters begin. Not with a meeting. Not with a confe
 
 **13th March 2019.**
 
-A boring evening. One of those days where you keep opening apps not because you want to do something, but because you don't want to sit alone with your thoughts. I opened Playo looking for badminton games nearby. Most games were already full. Some were too far away. Some had people I didn't know and timings I couldn't manage.
+A boring evening. One of those days where you keep opening apps not because you want to do something, but because you don't want to sit alone with your thoughts. I opened Playsports looking for badminton games nearby. Most games were already full. Some were too far away. Some had people I didn't know and timings I couldn't manage.
 
 Then I saw her game: one slot left, no players had joined yet. I clicked without thinking much. Her profile opened.
 
 Nimrat.
 
-Badminton and swimming were listed there among her interests — the way people list things they do to unwind, not things they are trying to master. Another profile on Playo. Another stranger in sports shoes. Nothing that should have mattered.
+Badminton and swimming were listed there among her interests — the way people list things they do to unwind, not things they are trying to master. Another profile on Playsports. Another stranger in sports shoes. Nothing that should have mattered.
 
 Just a simple picture. Nothing dramatic. No pose trying too hard to impress people. But her eyes in that small frame looked deeper than a profile photo had any right to look — calm, like water that had found its level. Something about her face stayed longer than it should have. Maybe it was the smile. Maybe it was the way happiness seemed to sit on her features without asking for attention. Or maybe I was simply lonely enough to find meaning in ordinary things.
 
 I sent the request. After some time, she accepted mine and another player's request.
 
-That should've been the end of it, but I messaged her on Playo anyway.
+That should've been the end of it, but I messaged her on Playsports anyway.
 
 **Me:** Court booked already?
 
@@ -57,7 +57,7 @@ The next day, on 14th March, I created a game myself and sent her the invite. I 
 
 That game never happened. Another small failure. Another thing that should've ended there.
 
-But on 15th March, she messaged me herself on Playo.
+But on 15th March, she messaged me herself on Playsports.
 
 **Her:** Available today? I'm looking out to play singles.
 
@@ -77,7 +77,7 @@ Her number.
 
 It sounds stupid now. But at that moment, it felt strangely personal.
 
-People guard phone numbers carefully. Especially in cities where everyone is tired of random messages and unnecessary familiarity. I had seen enough profiles on Playo to know how things usually worked. Girls either avoided direct messages completely or replied with the bare minimum before disappearing. Nimrat herself later admitted that she normally ignored most messages she received there.
+People guard phone numbers carefully. Especially in cities where everyone is tired of random messages and unnecessary familiarity. I had seen enough profiles on Playsports to know how things usually worked. Girls either avoided direct messages completely or replied with the bare minimum before disappearing. Nimrat herself later admitted that she normally ignored most messages she received there.
 
 Yet here was this girl I had never even met properly, sending me her number before we had played a single game together.
 

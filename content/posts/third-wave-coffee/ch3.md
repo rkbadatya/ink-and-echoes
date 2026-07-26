@@ -81,7 +81,7 @@ For a second she looked surprised. Then she laughed softly. Not loudly. Not dram
 
 Just that small amused laugh she had when something genuinely caught her off guard. And weirdly, that moment made her feel more real to me than anything before that. Not prettier. Not more attractive.
 
-Just more human. Until then, she had mostly existed in fragments inside my head. A badminton player. A pretty girl from Playo. Someone I was becoming curious about. But standing there near the pool, listening to her speak about random things while warm air drifted through the chlorine smell of the evening, she slowly stopped feeling like an idea. And started feeling like a person.
+Just more human. Until then, she had mostly existed in fragments inside my head. A badminton player. A pretty girl from Playsports. Someone I was becoming curious about. But standing there near the pool, listening to her speak about random things while warm air drifted through the chlorine smell of the evening, she slowly stopped feeling like an idea. And started feeling like a person.
 
 And the moment someone stops being an idea, they start being a risk.
 
@@ -113,7 +113,7 @@ Just reduced enough for silence to become comfortable instead of heavy. We still
 
 I started looking forward to her presence more than the sport itself. That realization arrived. Not through jealousy. Not through love.
 
-Not through some cinematic moment. Just through repeated possibilities. Through seeing her name appear on my screen and feeling my mood improve without permission. Through checking Playo hoping she had booked something.
+Not through some cinematic moment. Just through repeated possibilities. Through seeing her name appear on my screen and feeling my mood improve without permission. Through checking Playsports hoping she had booked something.
 
 Through ordinary moments gaining unnecessary emotional weight. And maybe that is how attachment truly begins. Not with confession. Not with certainty.
 
@@ -141,7 +141,7 @@ What stayed with me later wasn't the cancellation itself. It was the fact that s
 
 There was a small silence on the line.
 
-"Playo pe reschedule kar sakte hain kya?" she asked.
+"Playsports pe reschedule kar sakte hain kya?" she asked.
 
 I checked mentally. "I don't think so. Two hours se pehle hi hota hai shayad. Ab toh late ho chuka hai."
 

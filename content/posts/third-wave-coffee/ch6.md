@@ -182,23 +182,23 @@ Even though the entire reason she came there was to work. Still, every time her 
 
 "Meeting," she whispered. "Five minutes."
 
-Another time I pointed at her screen and said something stupid about a wallpaper just to make her look up. At that moment, I justified it as conversation. Later, I realized it was neediness wearing casual clothes. At one point I suggested we go check out MacBooks nearby.
+Another time I pointed at her screen and said something stupid about a wallpaper just to make her look up. At that moment, I justified it as conversation. Later, I realized it was neediness wearing casual clothes. At one point I suggested we go check out laptops nearby.
 
 Two days earlier, the same suggestion had died in WhatsApp — *bahut busy*. Another closed door. Now it opened too easily, and I didn't know whether to feel happy or careful.
 
-"MacBook dekhenge?" I asked.
+"Dell XPS dekhenge?" I asked.
 
 She looked up from her laptop. "Haan chalo. Window shopping counts as break." No hesitation this time.
 
 So we walked through the mall again — the same mall where I had once asked and been told the week was tough. And outside the structured space of badminton courts and café tables, the dynamic between us felt different somehow — lighter, more playful.
 
-The Apple store was the first stop. I don't know why I steered us there first — maybe because the MacBook invite had started in WhatsApp two days ago and some part of me wanted to prove I had meant it casually, not desperately. We stood near the iPhone display, both of us pretending we were just browsing.
+The Reliance Digital was the first stop. I don't know why I steered us there first — maybe because the laptop invite had started in WhatsApp two days ago and some part of me wanted to prove I had meant it casually, not desperately. We stood near the XPS display, both of us pretending we were just browsing.
 
 She picked up one of the newer models and turned it over in her hand with the casual confidence of someone already inside the ecosystem.
 
 "Aapka kaunsa hai?" I asked.
 
-She tilted her phone toward me — an iPhone, a generation or two old.
+She tilted her phone toward me — a Samsung, a generation or two old.
 
 "Upgrade soch rahi hoon," she said. "Future mein."
 
@@ -210,7 +210,7 @@ She smiled. "Tum sales guy lag rahe ho ab."
 
 Inside, I was doing something I hadn't fully admitted to myself — offering advice that sounded practical but was really just another way of imagining a future where I had helped her choose something. A small, harmless version of *I could take care of this for you.* I caught myself mid-thought and tried to sound lighter than I felt.
 
-We moved to the MacBook Air section. She ran her hand along the lid without opening it, the way people touch things they want but haven't decided they deserve yet.
+We moved to the Dell XPS section. She ran her hand along the lid without opening it, the way people touch things they want but haven't decided they deserve yet.
 
 "Kitna hai iska?" she asked the sales representative.
 

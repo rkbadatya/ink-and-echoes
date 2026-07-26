@@ -18,7 +18,7 @@ It was a perfectly reasonable, entirely platonic explanation. But hope is an und
 
 The real panic set in when I realized I didn't know what my actions were supposed to be. If it *was* a date, what was the protocol? Should I bring something?
 
-For a wild, embarrassing ten minutes on Wednesday night, I considered buying flowers. I even googled it, staring at photos of small, neat bouquets. *Too much. Definitely too much.* If I showed up to a Third Wave Coffee at eleven in the morning holding a bunch of lilies while she was trying to join a Slack call, I would look like a lunatic. It would tear down the wall of casual friendliness I had worked so hard to build.
+For a wild, embarrassing ten minutes on Wednesday night, I considered buying flowers. I even googled it, staring at photos of small, neat bouquets. *Too much. Definitely too much.* If I showed up to a Third Wave Coffee at eleven in the morning holding a bunch of lilies while she was trying to join a Skype call, I would look like a lunatic. It would tear down the wall of casual friendliness I had worked so hard to build.
 
 What do normal people even do in these situations? If I went completely empty-handed, it felt too cold—like I was just a colleague joining her for a meeting. I needed something in the middle. Something that didn't make my intentions obvious, but still carried a tiny bit of thought. Something funny, maybe? A weird bookmark? A particular pen?
 
@@ -68,7 +68,7 @@ She talked about her family. About home. About random things connected to growin
 
 It felt more relaxed now. More lived-in. Once she mentioned how safe it felt to leave laptops and belongings there while going around the mall. I remember looking at our things lying openly on the table and realizing she trusted places more easily than I did.
 
-Or maybe she trusted life more easily than I did. Then she asked about my housewarming ceremony. The fact that she remembered it at all made me happy. Somewhere between her work calls and mine, the conversation slipped into something lighter.
+Or maybe she trusted life more easily than I did. Then she asked about my cousin's wedding. The fact that she remembered it at all made me happy. Somewhere between her work calls and mine, the conversation slipped into something lighter.
 
 Age. I don't remember who brought it up first. Maybe it came naturally while talking about office and careers. She had done her masters, she said, which explained why someone with only around five years of working experience could still sound so certain in professional conversations. She was twenty-nine.
 

@@ -28,7 +28,7 @@ I hesitated for a moment — not because I was hiding anything, but because send
 
 A thumbs-up to a story. A reaction reserved for grocery confirmations and weather updates. I closed the chat and pretended that emoji had not landed as flatly as it had.
 
-Around that time, I had gone back home for our housewarming ceremony. I don't even remember when I started keeping her updated about it so naturally. I told her about the travel, about reaching home, about returning back. Even my WhatsApp statuses became slightly more intentional during those days. Not exactly for her. But also not entirely unrelated to her.
+Around that time, I had gone back home for my cousin sister's marriage ceremony. I don't even remember when I started keeping her updated about it so naturally. I told her about the travel, about reaching home, about returning back. Even my WhatsApp statuses became slightly more intentional during those days. Not exactly for her. But also not entirely unrelated to her.
 
 And she remembered it later. That stayed. Not as a thought I chose to keep, but as one I couldn't put down. Because when someone remembers the small things, your mind treats it as proof of something it isn't. One Sunday morning, we had planned another badminton game for the evening.
 
@@ -112,9 +112,9 @@ Around that time I had a Shreya Ghoshal song on loop. "Rozana." I couldn't expla
 
 Badminton had become difficult to land by then. She was busy more often than available. Timings slipped. Plans dissolved. Each cancellation came with a reasonable reason, and each reason still left me looking for another excuse to see her. Two days before Thursday — on Tuesday morning, while the drink question was still sitting unanswered in our chat — I tried a different angle.
 
-**Me:** MacBook dekhne chalein kya mall mein? Nexus side. Kabhi time ho toh.
+**Me:** Dell XPS dekhne chalein kya mall mein? Central Mall side. Kabhi time ho toh.
 
-A failed attempt, if I was honest with myself. Not really about laptops. Just another way of asking: can we meet for an hour without calling it badminton?
+A failed attempt, if I was honest with myself. Not really about a laptop. Just another way of asking: can we meet for an hour without calling it badminton?
 
 **Her:** This week tough hai. Bahut busy.
 
@@ -126,7 +126,7 @@ Then, while I was having lunch with colleagues in office, my phone rang. Nimrat.
 
 "Haan. Lunch break."
 
-"Okay… random question. Phoenix Market City Mall aa sakte ho kaam karne? Café se work."
+"Okay… random question. Central Mall aa sakte ho kaam karne? Café se work."
 
 I remembered an older conversation where she had casually asked whether I ever worked from cafés. At that time, I had said yes without thinking much about it. Now that old question had returned with context.
 
