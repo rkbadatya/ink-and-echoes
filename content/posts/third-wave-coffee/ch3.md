@@ -66,6 +66,18 @@ She actually pulled out her phone right there beside the pool. I tried to walk i
 
 I didn't open it then. Doing it right in front of her would have looked too eager. But that night, after I reached home and changed and pretended to read for a while, I opened every single video she had ever uploaded and watched them in order. The Nimrat in those videos was slightly younger, slightly more willing to be looked at. But underneath the cuts and the music and the small camera-trained smiles, the same quiet was there — the same steady eyes, the same not-quite-finished smile, the same way of holding her own attention long after the lens had moved on. I watched all of them. Then I closed the tab quickly, as if doing it fast made it less true that I had spent my night memorising fragments of a girl I had known for two badminton games.
 
+That same night I found her Instagram. It was not hard — her YouTube channel linked to it. I scrolled through it the way you scroll through a stranger's life at midnight: carefully, quietly, aware that every photo was a version of someone you do not yet have permission to understand.
+
+Travel photos. A meal at some restaurant. A book on a windowsill. A group shot from what looked like a trip, her face half-turned toward the camera. Nothing designed to impress. That made it more interesting.
+
+I did not follow her.
+
+The thought crossed my mind and I let it pass. Following leaves a trail — a notification, a name in her followers list she would eventually notice. It creates a thread between two people, something she could pull on or leave hanging. And following would also do something worse on my side: it would put her stories and posts into my daily feed, and that kind of slow drip of someone's ordinary life builds a closeness the other person never agreed to. You start knowing things about someone who does not know you are watching. You start having feelings about mornings you were never part of.
+
+I had seen enough of that pattern to know where it ends.
+
+So I closed the app. Looked. Did not follow. Told myself it was the careful thing to do.
+
 *Inn aankhon se yeh bata, kitna main dekhoon tujhe.*
 *Reh jaati hai kuch kami, jitna bhi dekhoon tujhe.*
 
