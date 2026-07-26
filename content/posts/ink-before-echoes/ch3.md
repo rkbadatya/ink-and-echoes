@@ -16,6 +16,8 @@ It was my third day at tuition. Rain all day. Roads full of mud and drain water.
 
 A few days later, the bus came. Someone looked at me from the window seat. I glanced back — the same face, white dress this time, entirely different. Something shifted in my chest that I could not name and could not put back. She noticed me looking and turned away. I found a seat and spent the rest of the ride not looking at her, in the specific way that means you are looking at nothing else.
 
+My heart was pounding when I got off the bus. Not the polite flutter people describe in novels — a hard, stupid pounding, the kind that makes you press your palm against your ribs to check if it is visible from the outside. I walked home and the pounding did not stop. That night I kept replaying the glance — her eyes, the turn of her head, the half-second before she looked away — and each replay made me want the next day to arrive faster. I wanted to see her again. Not to speak to her, not to know her name, just to see her. That was enough and it was not enough, and I did not understand how both of those could be true at the same time.
+
 After some days I sat just behind her. Her chunni drifted outside the window in the slow wind and the motion of the bus. She looked out at something I could not see, half her face covered by a handkerchief she held in a hand I had never touched. She seemed far away from the bus, from the road, from everyone on it. I did not have the courage to ask why.
 
 There was one day, a little later, when she sat one seat ahead instead. Her chunni drifted out the window again. This time, without entirely thinking about it, I spoke.
@@ -39,6 +41,10 @@ In the dreams she knew me. We talked, argued, reconciled, argued again. I lay on
 Someone always woke me up before I could find out how those dreams ended.
 
 She was perfect. That was the problem. Not her actual perfection — I knew nothing about her actual anything. But the perfection I had assembled from fragments: the window seat, the chunni in the wind, two accidental smiles. That assembled version was easier to love than a real person, because a real person might have replied, and I had no idea what I would have done if she had.
+
+I was not the only one who had noticed her. Many boys had — I could see it in the way they looked at her in corridors, at tuition, on the bus. One of them was a topper from another branch. I knew he liked her. I could tell from the way he positioned himself near her, the way his voice changed register when she was within earshot. He had confidence I did not have. He had reason to approach her. I watched him the way you watch someone standing closer to the thing you want — not with hatred, but with the quiet understanding that you are further back in a line you never joined.
+
+I never joined it. That was the decision I made without calling it a decision. I did not want to be one of the boys who liked Natasha. I did not want my name attached to hers in someone else's joke, whispered between lectures, passed around hostels. If people knew, my feelings would become ordinary — one more boy, one more crush, one more name to add to the list of people she did not notice. The moment it became public, whatever I carried would stop being mine. It would become a fact about me that others could evaluate, rank, laugh at. I could not bear that. So I kept it buried — not out of strategy, but out of the fear that if it surfaced, it would be worth less than it felt.
 
 ---
 
