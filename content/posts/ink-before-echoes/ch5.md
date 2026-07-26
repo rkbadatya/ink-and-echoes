@@ -27,7 +27,7 @@ I started improving. I thought she might notice. Our eyes met. To her it was cas
 
 Third semester. Fourth. Fifth. Sixth.
 
-I gained the so-called fame in my branch. Friends appeared in other branches too. Juniors may have heard my name once or twice. I hoped to top fourth semester. Swati's hard work beat my luck by 0.04. For the first time I felt jealous — then respect. Dushmanta became topper next. I was not jealous then. I was happy. I had learned something.
+I gained the so-called fame in my branch. Friends appeared in other branches too. Juniors may have heard my name once or twice. I hoped to top fourth semester. Swati's hard work beat my luck by 0.04. For the first time I felt jealous — then respect. Dev became topper next. I was not jealous then. I was happy. I had learned something.
 
 ---
 

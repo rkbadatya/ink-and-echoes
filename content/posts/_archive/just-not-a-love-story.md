@@ -12,11 +12,11 @@ belief, betrayal and break-up, and happiness and sorrow shared by them. It is a
 story of those five friends and their lives.
 
 The first days in PMEC-ragging-the days before my entrance into the group(1st
-sem)-their golden days(2nd sem)-Hyderabad tour-closeness to dushmanta-his life
+sem)-their golden days(2nd sem)-Hyderabad tour-closeness to Dev-his life
 story from his mouth-return to Berhampur-recall of me of the Bhubaneswar first
-time-my thought about the city-Amit’s life story on the train-again
-Berhampur-Anand’s life story on the classroom-second time to
-Bhubaneswar- Santosh’s past-the strike day with Manoj-the 25th anniversary- now
+time-my thought about the city-Amay's life story on the train-again
+Berhampur-Ankur's life story on the classroom-second time to
+Bhubaneswar- Shreyash’s past-the strike day with Manoj-the 25th anniversary- now
 final year of B.Tech and my story-chat with my first crush-the
 days with badabhai at mandiapalli- my failed friendship- fight with land
 lord- chat with manisha and techfest day-granny passed away and my potential

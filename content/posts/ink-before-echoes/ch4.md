@@ -17,7 +17,7 @@ No offence to those who suffered severely. I am sorry for that. I wish I could h
 
 "The more you have, the more you want."
 
-I could manage days. Nights were worse — depressed, sleepless, unable to do anything. My phone died. Santosh had gone to Bhubaneswar; his sister's laptop was unavailable. Amit I could not contact. No help.
+I could manage days. Nights were worse — depressed, sleepless, unable to do anything. My phone died. Shreyash had gone to Bhubaneswar; his sister's laptop was unavailable. Amay I could not contact. No help.
 
 Villages were underwater. No food, no shelter, no relief. I had lesser problems and still felt suffocated.
 

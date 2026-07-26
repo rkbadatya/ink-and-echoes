@@ -21,7 +21,7 @@ The second hand of the college auditorium broke the silence now and then. Everyo
 
 "Hello Engineers, let the party begin."
 
-Balloons burst like there was a war. Students danced. We five friends joined the mesh — not best friends, not just friends, only friends. ADARS: Amay, Debasish, Anish, Ramesh, Saurav. Each letter from a first name.
+Balloons burst like there was a war. Students danced. We five friends joined the mesh — not best friends, not just friends, only friends. ADARS: Amay, Dev, Ankur, Ronak, Shreyash. Each letter from a first name.
 
 Swarms of students buzzed, gossiped, danced. We stood in a corner talking. My eye was on her.
 
@@ -71,13 +71,13 @@ Oh my God — she was in front of me.
 
 I was already nervous. She gave me a heart attack. Heaven. I kept looking into her eyes. She started:
 
-"Hi Ramesh, this is for you…"
+"Hi Ronak, this is for you…"
 
 A letter. A pink letter. I dreamed it might be her love letter. I did not expect this from her.
 
 I could not handle myself.
 
-Suddenly I heard my own voice — **"I LOVE YOU, Nirlipta."**
+Suddenly I heard my own voice — **"I LOVE YOU, Natasha."**
 
 Happiness disappeared from her face. She was neither happy nor angry. She left.
 
@@ -85,7 +85,7 @@ I could not understand. Because she did not say no, I thought she might expect a
 
 I opened the letter.
 
-*Hi Ramesh, I LOVE YOU.*
+*Hi Ronak, I LOVE YOU.*
 
 I was stunned. Crying happily.
 
@@ -107,7 +107,7 @@ A pink letter opened too late to save anyone.
 
 That was the farewell — not the music, not the balloons, not ADARS in the corner, but the moment when silence finally answered back in ink someone else had written.
 
-I had loved Nirlipta without speaking.
+I had loved Natasha without speaking.
 
 Jinita had loved me without my knowing.
 
