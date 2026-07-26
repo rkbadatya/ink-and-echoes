@@ -22,13 +22,7 @@ PMEC received me the way large institutions receive everyone: without recognitio
 
 I discovered this slowly, the way you discover a chair has been pulled out from under you — only after you have already started to sit.
 
-My first real trip to Bhubaneswar felt different from anything before. Nervous. Excited. Unstable. I had to sleep early to wake early but habit would not allow it. I asked my younger brother to sit near me on the train. He put on headphones and ignored me. After half an hour of trying, I slept.
-
-In the morning I sat on the concrete verandah of Platform Number One, waiting for Shreyash.
-
-That day I learned things my previous life had not taught me: travelling in a DMU, searching for a vacant seat, running in rain, walking long distances, hostel routines, bargaining, eating outside home with friends, sharing one bed, waiting for a city bus, rushing dinner, sleeping before midnight. Small things. Ordinary things. But they belonged to a world I had not lived in.
-
-My first real trip there was not entirely new. I had visited in 2008 for CPYLS. Still, this felt different. Nervous. Excited. Unstable. I had to sleep early to wake early, but habit would not allow it. I asked my younger brother to sit near me on the train. He put on headphones and ignored me. After half an hour of trying, I slept.
+My first real trip to Bhubaneswar was not entirely new — I had visited in 2008 for CPYLS. But this felt different. Nervous. Excited. Unstable. I had to sleep early to wake early but habit would not allow it. I asked my younger brother to sit near me on the train. He put on headphones and ignored me. After half an hour of trying, I slept.
 
 In the morning I sat on the concrete verandah of Platform Number One, waiting for Shreyash.
 
@@ -38,7 +32,7 @@ The old version of me — the one with the rank and the scholarship story — ha
 
 At PMEC, I was one among many.
 
-No one knew my district rank. No one cared about my scholarship stories. The syllabus did not wait for my history. Coaching classes at Lakshya filled the evenings — Oracle with Shreyash, Akash, and Prabin from seven-thirty to eight-thirty; DAA with Teja, Swati, and Binita from six-thirty to seven-thirty. NIST students were everywhere in those rooms, as if we had signed a contract with the same tuition centre for all our confusion.
+Coaching classes at Lakshya filled the evenings — Oracle with Shreyash, Akash, and Prabin from seven-thirty to eight-thirty; DAA with Teja, Swati, and Binita from six-thirty to seven-thirty. NIST students were everywhere in those rooms, as if we had signed a contract with the same tuition centre for all our confusion.
 
 I attended Oracle while Shreyash once nearly walked into my DAA class by mistake, then caught himself at the door. Teja had endless things to say. I often preferred silence, listening from the side.
 

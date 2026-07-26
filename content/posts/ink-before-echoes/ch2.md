@@ -46,7 +46,7 @@ These were small scenes in a larger friendship — lab grades, coaching timings,
 
 I wish I could be each of them in my life, at least once.
 
-Please do not compare or take it personally. Even when I write about someone, they are always more than what my experience captured.
+What I have written is only one face of each of them — the face I saw from where I stood. Each of them is more than any experience of mine could hold.
 
 ADARS was not a brotherhood forged in drama. It was built in tuition queues, failed vivas, standing outside labs, and the slow recognition that I was no longer alone in a city that had not asked for my story.
 

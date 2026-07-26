@@ -18,7 +18,7 @@ It was not like other days.
 
 I had waited three years. Whatever had happened in between, I remembered what she was worth to me. I had never talked with her properly. I did not know where she belonged in the world outside college. Still I was here, still watching, still waiting for some version of myself that could say something real.
 
-I am not going to tell you about me or about her. I am making myself comfortable for what I am going to do — rather, what I will do at any cost.
+I had nothing prepared. Only that I would say something before the day ended.
 
 Tick. Tick. Tick.
 
@@ -78,7 +78,9 @@ I opened the letter.
 
 *Hi Ronak, I LOVE YOU.*
 
-I was stunned. Crying happily.
+For three seconds I thought it was from her.
+
+Then I read the rest. The handwriting. The phrasing. The signature at the bottom.
 
 *You look at me the way I love it. You say many things without a word spoken. Every time our eyes meet I get shy. But I wish you look at me that way always. Boy proposes girl — that's normal. I wish you mayn't misunderstand me for proposing you. Still you can reject me. I will get it. Maybe I'm not supposed for you.*
 
