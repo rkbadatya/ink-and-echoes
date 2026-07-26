@@ -50,7 +50,7 @@ I watched *The Vow* in the meantime. After dinner I logged in.
 
 Fifteen friends online. Jinita's name glowed green.
 
-I had a plan, if you could call it that. It was less a plan and more a collection of hopeful questions arranged in a sequence designed to arrive, eventually, at the one question I actually wanted answered. I had been circling Natasha for two years. Now I was going to circle her through a proxy — a friend request, a birthday conversation, a strategic follow-up chat.
+I had a plan, if you could call it that. It was less a plan and more a collection of hopeful questions arranged in a sequence designed to arrive, eventually, at the one question I actually wanted answered. I had been circling Natasha for three years. Now I was going to circle her through a proxy — a friend request, a birthday conversation, a strategic follow-up chat.
 
 I asked about inspiration. About someone I couldn't name. I steered the conversation slowly sideways until the name arrived on its own:
 
@@ -73,6 +73,8 @@ Offline. Suddenly. Without waiting.
 I sat with the closed chat window for a moment.
 
 She had figured it out. Maybe she had known from the beginning of the first conversation, and had simply been watching me try to be subtle about something I was not subtle about at all.
+
+I closed the laptop and sat in the silence of my room. Somewhere across the city Shreyash was probably studying. Amay was probably reading something obscure. Dev was listening to old songs. Ankur was being Ankur. The blog I had started after Phailin had not been updated in weeks. The recovery I had fought for — semester by semester, number by number — was still intact on paper, but my evenings no longer belonged to it. They belonged to this: two Facebook chats, a proxy strategy, an indirect approach to a girl I could have simply spoken to if I had been someone slightly braver. I had built a version of myself through writing, through friends, through slow academic repair. Now I was spending that version's time on schemes that required me to be someone I was not.
 
 ---
 

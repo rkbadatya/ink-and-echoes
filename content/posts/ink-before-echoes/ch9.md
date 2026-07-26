@@ -26,11 +26,13 @@ The second hand of the college auditorium broke the silence now and then. Everyo
 
 "Hello Engineers, let the party begin."
 
-Balloons burst like there was a war. Students danced. We five friends joined the mesh — not best friends, not just friends, only friends. ADARS: Amay, Dev, Ankur, Ronak, Shreyash. Each letter from a first name.
+Balloons burst like there was a war. Students danced. We five — ADARS — joined the mesh.
 
-Swarms of students buzzed, gossiped, danced. We stood in a corner talking. My eye was on her.
+For a few minutes, before everything else happened, we were just us. Shreyash said something sharp. Amay laughed too loudly. Ankur pulled someone into a hug they had not consented to. Dev stood beside me, quiet, the way he always was when the room was louder than he wanted it to be. I looked at them and understood, with the clarity that only endings provide, that these four people had carried me through four years without asking for anything in return — not gratitude, not loyalty, not even the full truth of what I had been carrying. They had received the version of me I could manage, and they had kept it anyway. Whatever happened next in that auditorium, this was the thing I was actually losing.
 
-She looked sweet, cute, beautiful, gorgeous — unlike the first day I saw her. White-orange sari. A smile on her face I had been dying to see.
+Then the crowd shifted, and I saw her.
+
+She looked different from the first day I saw her — not simply pretty but luminous, the way people look when you are seeing them for what you already know is the last time. White-orange sari. A smile on her face I had been dying to see.
 
 ---
 
@@ -42,9 +44,7 @@ A few days later, the bus came. Someone looked at me. I glanced back — the sam
 
 I never recovered from that look.
 
-She was always with JP — Jinita Priyadarshini. They moved together everywhere: same branch, same tuition, same bus. When I looked in her direction and Jinita was beside her, both of them wondered whom I was looking at. I never clarified. I did not have the words.
-
-I searched for her on Facebook. She had no account, or none I could find. I told myself things a person tells himself after a dead search result and moved on — back to the bus, back to counting glances, back to waiting for some day that kept not arriving.
+She was always with Jinita. When I looked in her direction and Jinita was beside her, both of them wondered whom I was looking at. I never clarified. I did not have the words.
 
 And so on.
 
@@ -52,7 +52,7 @@ And so on.
 
 **Farewell day**
 
-Today I am going to propose.
+I had decided: today I would tell her.
 
 Tense. Excited. Nervous. If she didn't accept? If she already had a boyfriend? Questions multiplied.
 

@@ -66,6 +66,8 @@ Then why did I think of her when someone asked about my future? Why did my chest
 
 The logic kept failing. The feeling kept returning. I stopped trying to categorise it and simply carried it instead.
 
+Meanwhile, college continued without waiting for my conclusion. Shreyash and Amay argued about study methods in the hostel. Ankur hugged people in corridors. Dev sat beside me listening to old songs. They were doing ordinary things — coaching queues, lab submissions, tea after lectures — and I was there with them, physically, my bag on my back, my notebook open. But some part of me was always on that bus, always at that window, always replaying a glance that had lasted less than a second. They did not know that. I made sure they did not know that. The cost of carrying something secret is that the people closest to you receive a version of you that is never entirely present.
+
 ---
 
 On August 18th, 2013, my phone showed a birthday notification.

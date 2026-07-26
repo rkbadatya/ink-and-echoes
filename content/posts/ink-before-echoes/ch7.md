@@ -88,7 +88,7 @@ At PMEC I arrived a stranger.
 
 I would leave carrying notebooks, friendships, failures, and a habit of turning pain into paragraphs.
 
-The ink was always there — in diaries no one read, in feelings no one saw, in a heart that loved too quietly and too long.
+It had been there all along — in notebooks no one opened, in feelings no one saw, in a heart that loved too quietly and too long.
 
 *Ink Before Echoes.*
 
