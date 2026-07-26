@@ -32,35 +32,31 @@ She was perfect. That was the problem. Not her actual perfection — I knew noth
 
 ---
 
-Time passed, and the question changed shape.
+The bus was a controlled situation. I had a seat, a window, a fixed distance. The glances happened and ended and I rode home with something I could contain.
 
-Do I really love her? Or is it lust — attraction to her body, the ordinary pull of a boy toward a girl?
+Then one morning, passing the IDBI ATM, I heard a familiar voice before I saw her face. Two girls stood waiting for a bus. I assumed they were juniors — walked closer without thinking — and then I recognised her.
 
-I did my job as usual. I remained what I used to be. Slight changes, perhaps, but not enough to prove I was in love. So by that logic, I was not in love anymore.
+She was standing right there. No bus between us. No assigned seats. No distance I could point to and call safe.
 
-Really?
+I did not stop walking. I lowered my head and kept moving — past her, past her friend, past whatever that moment could have been — and continued down the road as if I had somewhere urgent to be.
 
-Then why did I think of her when someone asked about my girlfriend, my life, my future? Why did my heart still skip when I saw her? Why did it still believe she would be mine?
+I had nowhere urgent to be.
 
-Mine only.
+That was the whole chapter in a single morning: she stood within reach, and I walked away from her the way you walk away from something you have decided you are not ready for, except I had not decided anything. My legs had simply kept moving while the rest of me stayed behind.
+
+You cannot look directly at the luminous sun without hurting your eyes. I had told myself this many times. It was the most honest excuse I had.
 
 ---
 
-Passing the IDBI ATM one morning, I felt a familiar style, a familiar voice. Two girls waited for a bus. I thought they were juniors. Then I came nearer.
+After that morning, the question changed.
 
-She was there.
+Was this love — or only the ordinary pull of a boy toward a girl who happened to be near him on a bus?
 
-I skipped a beat. Why not kill me once, God?
+I tried to test it the way I tested things: by logic. I had not changed much. I did my job. I remained mostly who I had been. Slight shifts, nothing definitive. So perhaps I was not in love. Perhaps it was simply habit — a face that the brain had marked as significant and could not unmarked.
 
-The girl I was dying to see stood within reach, and I — the fool — could not dare look straight at her. Her one glance made my day cheerful. Her smile made my heart joyful. I did not want her to love me. I would never force that. I only wanted friendship and wishes.
+Then why did I think of her when someone asked about my future? Why did my chest still tighten when I saw her? Why, walking away from the ATM that morning, did I feel not relief but something closer to loss?
 
-The truth remained: **she does not know me. She does not like me either.**
-
-I pretended to be unknown. I bowed my head and walked away, leaving my heart behind with her smile without her consent.
-
-You cannot look directly at the luminous sun without hurting your eyes.
-
-Same here.
+The logic kept failing. The feeling kept returning. I stopped trying to categorise it and simply carried it instead.
 
 ---
 
@@ -86,15 +82,13 @@ The problem was seeing it clearly changed nothing. I could be almost normal with
 
 ---
 
-Sometimes I read: *To draw a girl's attention, ignore her — but let her know you are ignoring her through hints.*
+Sometimes I read advice online: *To draw a girl's attention, ignore her — but make sure she knows you are ignoring her.*
 
-I did the first part.
+I managed the first part without any effort at all.
 
-I failed the second.
+The second part required her to know I existed.
 
-She remained a goddess in distance, a book I studied without permission, a thirst that could never be satisfied. I continued loving her in silence, hoping that someday the dream would cross into daylight.
-
-Someday.
+So I continued — loving her in silence, waiting for some version of myself that could walk past an ATM without lowering his head. Someday, I told myself. The dream would cross into daylight someday.
 
 Not today.
 
