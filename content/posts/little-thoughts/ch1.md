@@ -1,11 +1,11 @@
 ---
-title: Little Thoughts
-description: Little Thoughts
+title: 'Little Thoughts - Chapter 1: The Call'
+description: A meeting he doesn't want to attend, and a phone call that makes it irrelevant.
+weight: 10
 date: 2023-04-16
 categories:
   - story
 draft: false
-weight: 14
 ---
 
 He seems to be in distress. He looks at the clock on the sky-blue painted wall
