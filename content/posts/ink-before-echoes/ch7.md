@@ -14,11 +14,11 @@ Someone called my name. I woke up.
 
 It was just a dream.
 
-In the dream there was a big house decorated with flowers and lights. My parents and Shreyash's parents sat in the drawing room. Children played. Someone might have asked about SGPA. I was afraid. Then a baby cried and attention shifted from education to life.
+In the dream there was a big house decorated with flowers and lights. My parents and Shreyash's parents sat in the drawing room. Children played. A baby cried and attention shifted from education to life. A girl — whose face I could never hold clearly enough to see — followed me to a room filled with gifts. She knew my name. She knew my birthday. She stood with an ease that felt like she had always been there.
 
-A girl I could not fully remember followed me to a room filled with gifts. I picked one: *Happy Birth Day Ronak… From someone close to your heart.* She stood with an angelic smile. *It's your birthday, fool.* I looked at the calendar. December 28. She kissed my forehead. I closed my eyes to feel her.
+I closed my eyes to hold the feeling a little longer.
 
-Then morning arrived for real.
+Then morning arrived for real, and she was gone — the way she was always gone when I opened my eyes. In the dream she had known me. In the real world I was still the boy on the bus she passed without remembering.
 
 ---
 
@@ -30,15 +30,17 @@ Without thinking, I dipped my finger into Siba's bag and smeared color on Siba, 
 
 After I left college, our branch students had celebrated Holi without me. I asked Shreyash what was happening there. A group of eight had done their job, he said. I asked Sangya di whether they had come to my house first or elsewhere. They had started with me. Many places still to go.
 
-She was happy — but not entirely. Siba looked different too.
+Sangya di was happy I had come out — but not entirely. She had expected more enthusiasm, I think. Someone who played properly, not someone who smeared one finger of color and went quiet.
 
-I had spoiled their expectation without meaning to.
+I had turned up without being present. That was what I had been doing with most things that year.
 
 "Looks like you are not celebrating Holi anymore," Shreyash said.
 
 "Yeah. It was different at Phulbani. Here I have no interest in it."
 
-**Life changes.**
+He didn't push. He understood the kind of answer that is really a door closing.
+
+**Life changes. You change with it, or you don't, and either way something is lost.**
 
 ---
 
@@ -70,13 +72,11 @@ That was a Tuesday in final year. These things happened.
 
 ---
 
-I had become someone who wrote — badly, honestly, continuously. The blog was born in power cuts and boredom. The boy who once measured himself only by rank now measured himself by sentences he was afraid to publish.
+Somewhere in those final months I had become someone who wrote — badly, honestly, continuously. The blog was born in power cuts and boredom. The boy who once measured himself only by rank now measured himself by sentences he was afraid to publish. Friends in my branch knew the blog. Some shared it. A junior once said he had read all of it.
 
-Still she did not know.
+She did not know the blog existed. She did not know I existed. That remained the arithmetic of those months — recognised everywhere except where it mattered.
 
-Still I waited.
-
-**They are busy. And I am alone in my heart.**
+Still I waited. Still she did not know. The writing filled the silence the way writing always does: imperfectly, honestly, without anyone asking it to.
 
 ---
 
