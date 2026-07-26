@@ -48,6 +48,28 @@ That was the arithmetic of those final months.
 
 Coaching classes. Lab vivas. Oracle and DAA at Lakshya. Friends arguing outside chambers. Birthdays wished on Facebook and forgotten in classrooms. Books read in cyclone darkness. Diaries filled with questions no one would answer.
 
+One afternoon after tuition, Shreyash, Abheek, Deepankar, Tushar, and I stood near a junction discussing campus recruitment. A police van slowed. A bald policeman leaned out and told us not to stand in groups.
+
+"We are just leaving, sir," I said politely.
+
+Tushar joked, "Let's have a fight between you two bald heads." I had shaved my head after my grandmother's death.
+
+The policeman did not find it funny. Tushar whispered, "Let's go." We scattered — Abheek and Shreyash one way, Tushar and I on bicycles toward the main road. The van followed. I told Tushar to hide in a hotel and took the Lochapada road, losing myself in the crowd.
+
+I reached home. The doorbell rang. The same policeman stood outside, his smile widening when he saw me.
+
+"So here you live?"
+
+Before I could answer, my father appeared at the door.
+
+"Radhakanta, what are you doing here?"
+
+They knew each other. Dad invited him in, ordered me to bring cold drinks. Mom served snacks. They laughed like old friends. The policeman scolded me gently about standing in groups, then showed his family photo. I glanced at the girl beside him in the photograph — then thought of Natasha and looked away.
+
+That was a Tuesday in final year. These things happened.
+
+---
+
 I had become someone who wrote — badly, honestly, continuously. The blog was born in power cuts and boredom. The boy who once measured himself only by rank now measured himself by sentences he was afraid to publish.
 
 Still she did not know.

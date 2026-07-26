@@ -24,34 +24,6 @@ I sat with it for a moment. I had seen her name before — always beside Natasha
 
 I accepted. Then I browsed her profile, let the night fill with one question: *How do I make her understand about my sweetheart, without making it strange that she was the one who added me?*
 
-The next day was ordinary until tuition. I passed Neha, Suprava, and Mrinali returning from coaching without exchanging a word. Deepankar sat on the verandah, typing fast — almost certainly chatting with Ayushi Mahapatra. I sat beside him, said hi, received hi back with his angelic smile, and went inside when sir waved us in.
-
-After class, Shreyash, Abheek, Deepankar, Tushar, and I stood near a junction discussing campus recruitment. A police van turned. A bald policeman warned us not to stand in groups.
-
-"We are just leaving, sir," I said politely.
-
-Tushar joked, "Let's have a fight between you two bald heads." I had shaved my head after my grandmother's death.
-
-The policeman turned back. "What are you still doing here? What did he whisper? Do you think this is funny?"
-
-Tushar whispered, "Let's go." We ran — Abheek and Shreyash one way, Tushar and I on bicycles toward the main road. The van followed. I told Tushar to hide in a hotel; I would take the Lochapada road and disappear into the crowd.
-
-I reached home. The doorbell rang. The same policeman stood outside with a smile that widened when he saw me.
-
-"So here you live?"
-
-"Yes, sir."
-
-"Call your father."
-
-Before he finished, my father appeared.
-
-"Radhakanta, what are you doing here?"
-
-They knew each other. Dad invited him in. Ordered me to bring cold drinks. Mom served snacks. They laughed like old friends. The policeman asked my name, scolded me gently about standing in groups, showed his family photo. I looked only at the beautiful girl with blue eyes standing beside him — then compared her to Natasha and decided she was nothing compared to my darling.
-
----
-
 That night, after dinner, ten notifications waited.
 
 Five shares. Two group posts. Two tagged photos.
