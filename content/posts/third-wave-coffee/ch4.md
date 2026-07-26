@@ -1,7 +1,7 @@
 ---
-title: 'CTRL + PLAY - Chapter 5: Unfinished Plans'
+title: 'Third Wave Coffee - Chapter 4: Unfinished Plans'
 description: Unfinished Plans
-weight: 14
+weight: 13
 date: 2019-05-23
 categories:
   - story

@@ -1,7 +1,7 @@
 ---
-title: 'CTRL + PLAY - Chapter 3: Across the Net'
+title: 'Third Wave Coffee - Chapter 2: Across the Net'
 description: Across the Net
-weight: 12
+weight: 11
 date: 2019-05-23
 categories:
   - story

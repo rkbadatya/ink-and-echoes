@@ -1,7 +1,7 @@
 ---
-title: 'CTRL + PLAY - Chapter 7: Caste, Stories, and Expressions'
+title: 'Third Wave Coffee - Chapter 6: Caste, Stories, and Expressions'
 description: Caste, Stories, and Expressions
-weight: 16
+weight: 15
 date: 2019-05-23
 categories:
   - story

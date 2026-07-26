@@ -1,7 +1,7 @@
 ---
-title: 'CTRL + PLAY - Chapter 4: One Missing Sentence'
+title: 'Third Wave Coffee - Chapter 3: One Missing Sentence'
 description: One Missing Sentence
-weight: 13
+weight: 12
 date: 2019-05-23
 categories:
   - story

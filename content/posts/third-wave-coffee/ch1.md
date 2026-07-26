@@ -1,7 +1,7 @@
 ---
-title: 'CTRL + PLAY - Chapter 2: Before I Knew Her'
+title: 'Third Wave Coffee - Chapter 1: Before I Knew Her'
 description: Before I Knew Her
-weight: 11
+weight: 10
 date: 2019-05-23
 categories:
   - story

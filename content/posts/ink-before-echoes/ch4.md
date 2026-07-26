@@ -1,6 +1,6 @@
 ---
-title: 'Ink Before Echoes - Chapter 4: Phailin'
-description: Cyclone, darkness, and five novels that built something inside what the storm destroyed outside.
+title: 'Ink Before Echoes - Chapter 4: The Weight of Numbers'
+description: Third-semester collapse, family guilt, and the slow climb back — partly for her, partly for himself.
 weight: 13
 date: 2013-01-01
 categories:
@@ -8,50 +8,66 @@ categories:
 draft: false
 ---
 
-It is all because of you, Phailin.
+I will be famous.
 
-If you had not come, I would have stuck to my computer and done all those useless things. I would not have woken the desire that had been sleeping inside me. I loved reading once — out of syllabus, for pleasure — but something had suppressed it. I could not have found it again without you.
+That was my ambition in third semester — and at any cost I could not let her slip away, even though she did not know I existed. I had started liking her. I was in so-called love, and I remained in it.
 
-No offence to those who suffered severely. I am sorry for that. I wish I could help. But for me, alone in a dark city without current, without PC, without movies, without Facebook, without talking to friends, the problem felt enormous.
+Then came the result.
 
-"The more you have, the more you want."
+A horrible performance — overconfidence, distractions, negligence. I could not face her. What would I have said? That I was irresponsible? That I had failed because I did not care enough? Would she have wanted even friendship from someone like that?
 
-I could manage days. Nights were worse — depressed, sleepless, unable to do anything. My phone died. Shreyash had gone to Bhubaneswar; his sister's laptop was unavailable. Amay I could not contact. No help.
+No way.
 
-Villages were underwater. No food, no shelter, no relief. I had lesser problems and still felt suffocated.
+No one can imagine how I lived those days — sleepless nights about my performance, about her. I felt like killing myself many times. It was her grace, or my mother's love, that kept me alive. Suicide was not a solution. It was my mother's teaching about life that kept me here to tell you this.
 
-Then I thought: reading.
+Many people had wishes behind my recovery. I sank into depression for a week after the announcement. Then I returned to normal and made a commitment — to her, not in reality but in thought. I prepared to do anything. I could not break it.
 
-I found a book of Gita slokas in Hindi — a language I am worse at — and read one chapter before giving up. I bought a newspaper to know what was happening outside. In a bookshop, something caught my eye: *Two States: The Story of My Marriage* by Chetan Bhagat.
+I started improving. I thought she might notice. Our eyes met. To her it was casual. To me it was life.
 
-The first novel I had read by him. I had started it once before the POSD exam in third semester and never finished. Now I read through the night.
+Third semester. Fourth. Fifth. Sixth.
 
-Then *Revolution 2020*. *Three Mistakes of My Life*. *Five Point Someone*. I had not read *One Night @ the Call Center*. I did not know whether the stories were real or fiction. I enjoyed them anyway. I searched for real-life love stories and found Ravinder Singh — *I Too Had a Love Story*, *Can Love Happen Twice*. I liked the first one most.
-
-Then Durjoy Datta — *You Were My Crush*, *She Broke Up, I Didn't*, *Hold My Hand*, *Of Course I Love You*, *If It's Not Forever*. I bought two, then three more. I read through the night until five-thirty in the morning. Slept until nine-forty-five. My hands grew stiff. My back ached. My body weakened. My mind stayed fresh. My eyelids refused tiredness.
-
-I finished all of them just before I started writing in my diary.
+I gained the so-called fame in my branch. Friends appeared in other branches too. Juniors may have heard my name once or twice. I hoped to top fourth semester. Swati's hard work beat my luck by 0.04. For the first time I felt jealous — then respect. Dev became topper next. I was not jealous then. I was happy. I had learned something.
 
 ---
 
-Something formed inside me.
+How can I forget my father cycling fifteen kilometres so I could reach exam centres? Waking me before dawn so I would not be late for school? Taking insults on my behalf? Praising me before his friends?
 
-I became a new person — encouraged, restless, thirsty for expression. I know I am a bad writer. But I wanted to start something that would give me peace, change my mood, satisfy a thirst I could not name.
+How can I hurt my mother — feeding me from her share so my stomach would not feel empty, reserving money from her expenditures for my college fees, suppressing her dreams for mine, hiding pain so I would not be disturbed?
 
-That is where blogging began.
+I am guilty I did not keep my promise. I did not fulfil my mother's dream of becoming a doctor. That decision changed everything.
 
-The first thing I wrote was not about Natasha. It was about Berhampur — about a boy leaving home and not understanding what he had lost. Those chapters came easier, as if the older wound had been waiting longer for words.
+I am guilty of what I have become — selfish, stiff-hearted, profit-oriented. I miss the innocent boy who enjoyed friends, respected his elder brother, feared his father, cared for his younger brother, cried when his mother was sad.
 
-I put myself into every character — Dev, Avantika, Vernita, all of them. I cried when they cried. I laughed when they were happy. When things went right, I smiled constantly. The next moment shocked me. My heart broke and reassembled. Stories demanded happy endings; otherwise they were not endings. The story must continue.
+I want to be simple: a good friend, a good brother, a good son, a good student. No fame. Fame changes how friends treat you. I do not wish for that.
 
-Phailin destroyed things outside.
+I need a hug. A kiss on my forehead. Love, prayer, peace, wishes.
 
-Inside, it built something.
+---
 
-Three days and two nights without my younger brother, without my parents — alone in a lightning city without a bit of light — I lived the life of someone else through books. I could not think straight. I felt what strangers on pages felt. I could not have done that with a charged phone and an open browser.
+Study became priority again — maximum potential directed toward marks. Results improved. I was happy.
 
-The cyclone forced me offline.
+Still unhappy.
 
-Offline, I found ink.
+She was not there to share the happiness.
 
-Years later I would call this series *Ink Before Echoes* — these were the years before the writing found readers, before anything I wrote came back to me changed. The ink was always there. Phailin simply made me pick up the pen.
+At this point I needed someone's help. But it was final year. Everyone was busy — jobs, interviews, careers. I was the only one still trying to finish an unfinished job. I did not want to leave college crushed. I had been crushed before for my own fault.
+
+Now it was exam time. After it, eighth semester — the last days I could see her here.
+
+I wanted all of this for her.
+
+If she was not there to celebrate it, I had failed.
+
+Crush. Friend. Like. Love.
+
+That was the path I imagined.
+
+My buddies would not help. You know what?
+
+**They are busy. And I am alone in my heart.**
+
+The weight of numbers had nearly broken me.
+
+Recovery did not make me light.
+
+It only taught me how to carry the weight and keep walking.

@@ -1,7 +1,7 @@
 ---
-title: 'CTRL + PLAY - Chapter 8: Looking Through Glass'
+title: 'Third Wave Coffee - Chapter 7: Looking Through Glass'
 description: Looking Through Glass
-weight: 17
+weight: 16
 date: 2019-05-23
 categories:
   - story

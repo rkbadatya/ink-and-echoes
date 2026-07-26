@@ -1,7 +1,7 @@
 ---
-title: 'CTRL + PLAY - Chapter 6: The Reserved Seat'
+title: 'Third Wave Coffee - Chapter 5: The Reserved Seat'
 description: The Reserved Seat
-weight: 15
+weight: 14
 date: 2019-05-23
 categories:
   - story
