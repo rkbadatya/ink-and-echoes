@@ -44,8 +44,6 @@ A few days later, the bus came. Someone looked at me. I glanced back — the sam
 
 I never recovered from that look.
 
-She was always with Jinita. When I looked in her direction and Jinita was beside her, both of them wondered whom I was looking at. I never clarified. I did not have the words.
-
 And so on.
 
 ---
