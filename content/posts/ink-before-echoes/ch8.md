@@ -12,7 +12,11 @@ I had waited too long, and I knew it — not the way people know things they've 
 
 She was always with Jinita. Same branch, same tuition, same bus when luck allowed. They moved through college like a pair of things that belonged together — the kind of friendship that makes outsiders feel the awkwardness of interruption even from a distance. I could not approach one without the other being there. And approaching both felt impossible.
 
-Then, one evening, Facebook gave me an opening I had not planned.
+I had tried the obvious route first. I searched for her name on Facebook. She did not have an account — or if she did, she had made it unfindable. I sat with the dead search result for a moment and told myself something like: *Facebook is for people who need to be found. She doesn't need it.* That was not a thought. That was just a way of closing the browser without feeling the failure of it.
+
+I never sent her a request. Not once, in all of college. It was the one direct step I could not make myself take.
+
+Then, one evening, Facebook gave me a different opening — one I had not planned and had not earned.
 
 A notification. *Jinita Prakash sent you a friend request.*
 

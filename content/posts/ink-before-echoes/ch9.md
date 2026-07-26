@@ -48,11 +48,11 @@ One beautiful day she sat one seat ahead. Her chunni waved outside the bus windo
 
 That was our first conversation. Not ours — only mine.
 
-Many days passed. I found Jinita's profile, searched for NP in her friend list. All in vain. She had no Facebook account.
+Many days passed. I found Jinita's profile on Facebook, searched through her friend list for Natasha's name. Nothing. She had no account — or none that I could reach.
 
-"Facebook is for them who are not beautiful girls. She is so beautiful. She doesn't need Facebook."
+I told myself: *Facebook is for them who are not beautiful girls. She is so beautiful. She doesn't need it.* A saying I invented for satisfaction after failure. I even thought about sending Jinita a request, using her as a way in. Something stopped me — not courage, the opposite of it. The fear that a rejected request would make the whole thing real in a way I could not undo.
 
-A saying for satisfaction after failure. I thought of sending Jinita a request. Something stopped me. Why would I? If not accepted, guilt. So I stopped.
+So I stopped. I went back to watching from the bus. I told myself it would happen some other way.
 
 And so on.
 
