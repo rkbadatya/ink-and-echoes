@@ -36,20 +36,6 @@ She looked different from the first day I saw her — not simply pretty but lumi
 
 ---
 
-**Three years earlier**
-
-It was my third day at tuition. Rain all day. Roads full of mud and drain water. I entered CAREER PLUS quickly. On the verandah outside, a girl in white top and black jeans sat waiting. I glanced and went inside. No intention to know her. She did not seem remarkable.
-
-A few days later, the bus came. Someone looked at me. I glanced back — the same face, white dress this time, entirely different. I could not stop looking. She noticed and looked away.
-
-I never recovered from that look.
-
-And so on.
-
----
-
-**Farewell day**
-
 I had decided: today I would tell her.
 
 Tense. Excited. Nervous. If she didn't accept? If she already had a boyfriend? Questions multiplied.

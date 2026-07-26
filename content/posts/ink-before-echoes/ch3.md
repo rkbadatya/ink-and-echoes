@@ -10,9 +10,11 @@ draft: false
 
 I did not know her name for a long time.
 
-I did not know which branch she was in, or where she lived, or what she was called. I knew only that she was from my college, that she took the same bus, and that the first time I saw her — sitting at the window seat, looking outside while I waited at the stop — something shifted in my chest that I could not name and could not put back.
+I did not know which branch she was in, or where she lived, or what she was called. The first time I saw her, I did not even look twice.
 
-She wore a pink-white dress. Our eyes met briefly as I boarded. She looked away. I found a seat and spent the rest of the ride not looking at her, in the specific way that means you are looking at nothing else.
+It was my third day at tuition. Rain all day. Roads full of mud and drain water. I entered CAREER PLUS quickly. On the verandah outside, a girl in white top and black jeans sat waiting. I glanced and went inside. No intention to know her. She did not seem remarkable.
+
+A few days later, the bus came. Someone looked at me from the window seat. I glanced back — the same face, white dress this time, entirely different. Something shifted in my chest that I could not name and could not put back. She noticed me looking and turned away. I found a seat and spent the rest of the ride not looking at her, in the specific way that means you are looking at nothing else.
 
 After some days I sat just behind her. Her chunni drifted outside the window in the slow wind and the motion of the bus. She looked out at something I could not see, half her face covered by a handkerchief she held in a hand I had never touched. She seemed far away from the bus, from the road, from everyone on it. I did not have the courage to ask why.
 
