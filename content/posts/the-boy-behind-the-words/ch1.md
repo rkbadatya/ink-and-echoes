@@ -41,7 +41,7 @@ When I finally checked the writer's profile, I was surprised to see that he was 
 
 That made me curious.
 
-I noticed he had mentioned a blog in his profile. I visited it and started reading more of his stories. Before long, it became part of my daily routine.
+I noticed he had mentioned a blog in his profile. I visited it and started reading more of his stories — some about college, some older ones about a childhood I could almost picture. Before long, it became part of my daily routine.
 
 Funny, but true — in the beginning, I was not interested in the writer. I was interested in the writing.
 

@@ -40,6 +40,8 @@ I became a new person — encouraged, restless, thirsty for expression. I know I
 
 That is where blogging began.
 
+The first thing I wrote was not about Natasha. It was about Berhampur — about a boy leaving home and not understanding what he had lost. Those chapters came easier, as if the older wound had been waiting longer for words.
+
 I put myself into every character — Dev, Avantika, Vernita, all of them. I cried when they cried. I laughed when they were happy. When things went right, I smiled constantly. The next moment shocked me. My heart broke and reassembled. Stories demanded happy endings; otherwise they were not endings. The story must continue.
 
 Phailin destroyed things outside.

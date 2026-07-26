@@ -1,6 +1,6 @@
 ---
-title: 'Our Unfinished Years - Chapter 7: The Fragrance in the Corridor'
-description: A passing presence in the hallway unsettles a heart that had come only to study.
+title: 'Our Unfinished Years - Chapter 7: The Sketch in the Rain'
+description: A failed test, a secret sketch, and a night with Alisha Di that changed nothing and everything.
 weight: 46
 date: 2011-03-12
 categories:
@@ -8,120 +8,170 @@ categories:
 draft: false
 ---
 
-Some memories don't return through thought.
+Some failures arrive quietly.
 
-They return through something far simpler.
+Others arrive with a voice.
 
-A sound. A place. A smell passing through air that no longer belongs to you.
+Mine arrived with both.
 
-By then, college life had already settled into rhythm. Classes began and ended on time. Attendance registers decided reputations. Assignments piled up quietly. Rooms stayed noisy in the evenings and silent in the mornings. Everything moved forward without waiting for anyone to catch up.
+Five marks out of fifteen in chemistry — after scoring full marks in the previous test, after being in the top ten, after carrying the weight of expectation without complaint. My teacher had every reason to be angry. She scolded for half an hour. Irresponsible. Disgrace. I had ashamed myself.
 
-And yet, not everything blended into routine.
+She was right about the marks.
 
-Some moments refused to dissolve.
+She was wrong about the reason.
 
-They stayed separate, as if time had forgotten to edit them out.
+I had not stopped studying because I was careless. I had stopped concentrating because I was in love with her — my chemistry teacher — in the way only a sixteen-year-old boy can be in love with someone who does not know he exists. Her presence in the classroom liquefied my attention. My mind wandered to impossible futures: whether she would change her surname after marriage, whether Sunanda Sahu Bharadwaj would sound right, whether any of it was even worth imagining.
 
-For me, one such moment always began in the corridor.
+It was amateur. It was silly.
 
-It would be between classes, during that brief break when the entire campus seemed to spill into motion at once. Hallways filled instantly. Voices overlapped. Footsteps hurried in different directions. Someone always called someone else's name. Someone always ran late. Someone always had nowhere urgent to go but moved anyway.
+It was also completely real.
 
-I would usually stand near the wall with my books, waiting for the next class to begin.
+When the scolding ended, I sat in the crowded classroom and heard nothing of what followed. The noise of the room passed over me like weather. Inside, there was only silence — a dead, temporary deafness that made the rest of the day feel far away.
 
-That was when it happened.
+Outside, it was raining.
 
-A fragrance would pass through the corridor.
+The sky matched my mood. Not dramatic, not theatrical — just heavy. Gloomy in the way afternoons become gloomy when you have disappointed someone you wanted to impress, and disappointed yourself even more.
 
-Soft. Fresh. Almost unnoticeable at first—but impossible to ignore once it reached you.
+When nothing works, sometimes you let yourself go.
 
-It did not announce itself. It simply arrived and changed the air for a moment.
+I opened the back page of my notebook — the page reserved for rough work, for calculations, for the mess that does not need to be preserved — and let the pen move without plan. I had nothing in my mind except the need to do something. Anything.
 
-And almost without thinking, I would look up.
+After five minutes, the shape resembled a mango.
 
-She had usually already crossed halfway down the corridor by then.
+After ten, it had a face.
 
-At first it was only a passing glimpse—hair moving lightly as she walked, books held close, steps steady in a way that did not ask for attention but received it anyway. There was a quiet order to her presence, as if she belonged to a different pace of movement than the rest of us.
+After a little longer, it looked like her.
 
-She was never alone, yet she always felt slightly apart.
+When the class ended, I walked to the corridor with the sketch in my hand. I looked up at the sky, closed my eyes, and held the paper out into the rain. The water came quickly. When I opened my eyes again, the drawing was gone — only wet paper remained. I let it fall.
 
-Friends walked beside her, laughing, talking, sharing their own small worlds. But she moved through them like a separate line in the same direction.
+I felt relieved.
 
-I did not know her name.
+Not because I was angry at her. I had never been angry. But because the sketch had carried something I could not say aloud, and the rain had taken it without asking permission.
 
-I did not know her class.
+That was enough for the afternoon.
 
-I did not know anything that would normally make someone familiar.
+---
 
-But after that first day, I started noticing when she passed.
+The return journey should have been ordinary.
 
-Sometimes I saw her from the far end of the corridor.
+It was not.
 
-Sometimes I only recognized her presence through that faint fragrance arriving before sight.
+I boarded the mini bus, folded my raincoat into my bag, and took a middle seat — not the window, just wet enough to remind me of the season. The clock said six-thirty. The light was fading. At State Bank Square, a woman boarded and sat in front of me. I could see only her left profile. Her hair was open and soaked. Rain had done to her what imagination had done to my afternoon — made everything sharper, more present, more impossible to ignore.
 
-Sometimes I missed her entirely—and somehow that absence felt noticeable too.
+I thought of my teacher.
 
-It should not have meant anything.
+How would she look in a sari, drenched, sitting just like this? Rain tracing a path from forehead to cheek, from lip to chin, from neck to ground. I wished I could be the drop. I wished I could be the fabric. I wished I could belong to something that beautiful.
 
-And yet it did, in a way I could not explain even to myself.
+But it was only a thought.
 
-I was not someone who spoke easily. I was not someone who approached strangers without reason. I was the kind of student who stayed within boundaries—of study, of silence, of familiarity.
+I had never confessed. I had never even approached the edge of confession.
 
-So I did what people like me usually do when something feels important but unreachable.
+Then the city added its own interruption.
 
-I observed.
+A strike at UCP Junction. Buses rerouted. Traffic jammed. The conductor dropped me at Bijipur Square and suggested I walk toward the petrol pump, turn right at State Bank Square, and figure out the night from there — perhaps a lodge, perhaps luck.
 
-I never changed my routine deliberately, but somehow my awareness adjusted itself. I found myself remembering class timings I never tried to memorize. I became strangely alert to that stretch of corridor. If I happened to be there when she passed, the day felt slightly lighter, though nothing around me had changed.
+I was worried now.
 
-If I missed it, life continued exactly the same.
+Luck, as it turned out, had a phone number.
 
-That was the strange part.
+Alisha Di called while I was near Khalikote Junior College, asking if I had reached the mess. When I told her about the strike, her voice lifted with the kind of excitement that makes trouble feel like an invitation.
 
-Nothing happened, yet something still existed.
+"Come to my home. It'll be fun tonight."
 
-My friends noticed before I ever admitted anything.
+She asked where I was. She would pick me up.
 
-"You stand here a lot these days."
+I waited at State Bank Square. Five minutes later, my phone rang.
 
-"This corridor again?"
+"Look to your right."
 
-"Waiting for someone?"
+She was there — a little wet, sitting on her scooter, one leg on the footrest and one on the ground, smiling in the way older sisters smile when they know they have already won the argument. I climbed onto the back. She rode fast enough to terrify me at first, then fast enough to feel like freedom.
 
-I always denied it with unnecessary seriousness.
+We were both soaked within minutes. The wind threw rain at my face. The traffic roared around us. She shouted over it:
 
-They laughed. Of course they did. Denial is never convincing when it is repeated too quickly.
+"So how does it feel to get wet in the rain?"
 
-But I never corrected them with the truth either.
+"Fun," I shouted back, "until I get sick."
 
-Because there was nothing to correct.
+"Don't worry. I won't let that happen."
 
-No conversation had ever happened.
+I believed her.
 
-No introduction had ever been made.
+---
 
-At most, there were moments where our eyes might have met for a fraction of a second—too short to call it anything, too long to ignore completely.
+Her house was larger than I expected — space for a garden, space for vehicles, space for the kind of life that does not feel temporary. She parked the scooter, took my hand, and pulled me inside with the grip of someone who has decided you are not allowed to be shy.
 
-Even that might have been imagination.
+Her mother appeared immediately — beautiful in the same effortless way, smiling as if she had been expecting me.
 
-It did not matter.
+"You must be Ronak. Alisha used to talk about you. Come, sit."
 
-Some people don't enter your life through interaction.
+Alisha's mother scolded her for not wearing a raincoat. Alisha deflected the blame toward me with perfect timing — look at Ronak, she said, he has been bathed by rain; if I had been late, he would have drowned. We laughed. The room softened.
 
-They enter through repetition.
+I dried myself with a towel. Alisha disappeared and returned with clothes.
 
-Through presence.
+"What is your measurement?"
 
-Through the way a moment begins to feel familiar even before it has meaning.
+"I brought you my T-shirt and pant. Looking at you, I think it will fit."
 
-And slowly, without permission, she became part of that corridor in my memory—the light, the movement, the passing air, the version of me who always happened to be standing there with books in hand, pretending I was only waiting for class.
+I protested. She did not accept protest.
 
-Years later, I would forget most things.
+The T-shirt carried a line I did not expect:
 
-Faces blurred. Names faded. Equations dissolved.
+*Life is just a word until you find someone to give it a definition.*
 
-But sometimes, when a familiar fragrance passes through an unfamiliar place, I remember that corridor again.
+The trousers were yellow with green stripes and two pandas near the thighs. I changed in the bathroom — large, immaculate, smelling of Dettol, with a television mounted on the wall as if luxury were ordinary here.
 
-And the boy I was then.
+When I came out, she took my wet uniform from me despite my objections. She washed it herself. She put it in the dryer. She looked at me in her clothes and said I looked thin. Cute. Like a boy wearing someone else's life for one evening.
 
-Standing still.
+On the wall, a framed photograph showed Alisha with her parents and a boy of about ten. I had never heard her mention a brother.
 
-Waiting for nothing he could name.
+While we drank milk, I asked.
+
+Her face changed.
+
+"Never ask Mummy or Papa about this, okay? I'll tell you after dinner."
+
+I did not push.
+
+Her father came home — the man from the photograph, older now, belly softer, hair whiter. Alisha introduced me before he could wonder too long.
+
+"Ronak. You must remember — I was talking about him."
+
+"I imagined him a little differently," he said, studying me with genuine warmth. "He is very cute. Adorable."
+
+"Papa, he is not a girl," Alisha said.
+
+"I am just saying."
+
+At dinner, the table was set for six. Light green cover. A pigeon in flight stamped at the center. Rice, dal, paneer khurma, aloo bhindi, papad. Alisha served my plate as if feeding me were a sacred duty. Uncle led us in prayer. I followed the gestures without fully understanding the words.
+
+Uncle asked about me. Alisha intervened when my plate became a mountain.
+
+"This is more than enough, Di. I can't eat so much."
+
+Her mother smiled. "You are so thin. People will misunderstand you as a girl if you won't eat and become healthy like a young man."
+
+Alisha told stories — how she had been called Piggy-Wiggy in school, how she lost twenty kilograms, how her mother's greatest sorrow arrived the day she announced the weight was gone. I transferred rice from my plate to hers. She glared. I made a puppy face. She melted.
+
+"You have such a cute face, Ronak. I can't even get angry at you, my sweet brother."
+
+"Adorable," Uncle said again, and everyone smiled.
+
+---
+
+Later, I called my elder brother and explained where I was. He told me to be safe. Call in the morning before leaving for college.
+
+I looked at the photograph again.
+
+A perfect family on the wall. Parents. Daughter. Son. A happiness complete enough to hang in the drawing room.
+
+I wondered where the boy was now — hostel, relatives, some life elsewhere. I wondered about my own family, scattered across cities and duties, still whole in memory if not in geography.
+
+Alisha had not told me about her brother.
+
+She may never tell me.
+
+Some absences are not explained on the first rainy night. Some sketches dissolve before anyone sees them. Some failures remain on the record while the real reason stays hidden in the back pages of a notebook, washed clean by weather, carried home in borrowed clothes, eaten in a house that felt warmer than the one you left.
+
+The rain continued outside.
+
+Inside, for one evening, I was safe.
