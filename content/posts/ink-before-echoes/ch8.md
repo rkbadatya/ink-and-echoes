@@ -1,6 +1,6 @@
 ---
 title: 'Ink Before Echoes - Chapter 8: The Failed Attempt'
-description: Friending Jinita to reach Natasha — and using the girl who loved him as a bridge.
+description: Jinita adds him first. He uses the opening — and the girl who loved him — as a bridge to the one who never noticed him.
 weight: 17
 date: 2013-01-01
 categories:
@@ -12,13 +12,13 @@ I had waited too long, and I knew it — not the way people know things they've 
 
 She was always with Jinita. Same branch, same tuition, same bus when luck allowed. They moved through college like a pair of things that belonged together — the kind of friendship that makes outsiders feel the awkwardness of interruption even from a distance. I could not approach one without the other being there. And approaching both felt impossible.
 
-The strategy I arrived at was not elegant.
+Then, one evening, Facebook gave me an opening I had not planned.
 
-I logged into Facebook, went to the search bar, and typed: *Jinita*.
+A notification. *Jinita Prakash sent you a friend request.*
 
-Jinita Prakash.
+I sat with it for a moment. I had seen her name before — always beside Natasha's, always part of the pair. I had thought about adding her myself, had even typed the name into the search bar once and then closed the browser, deciding I was not ready to be that obvious. She had done it first. She had seen me somewhere — tuition, the bus, the college corridor — and decided to add me. I did not know why. I did not spend too long asking.
 
-I paused, then sent a friend request. Now I had to wait. I browsed group pages, logged out, and let the night fill with questions: Will she accept? If yes, how will I make her understand about my sweetheart?
+I accepted. Then I browsed her profile, let the night fill with one question: *How do I make her understand about my sweetheart, without making it strange that she was the one who added me?*
 
 The next day was ordinary until tuition. I passed Neha, Suprava, and Mrinali returning from coaching without exchanging a word. Deepankar sat on the verandah, typing fast — almost certainly chatting with Ayushi Mahapatra. I sat beside him, said hi, received hi back with his angelic smile, and went inside when sir waved us in.
 
@@ -56,7 +56,7 @@ One friend request accepted.
 
 I clicked only that.
 
-Her profile was well maintained — last post two weeks old. It was her birthday. I had not known this. I clicked Message and copied a birthday wish from some website, the way you do when you have no better reason to initiate a conversation and need to borrow one. Two minutes of silence. She was not online.
+Her profile was well maintained. Scrolling through it I noticed the date — it was her birthday today. I had not known this. The timing felt like the universe extending a small favour. I clicked Message and copied a birthday wish from some website, the way you do when you have a reason to initiate but still need to borrow a tone. Two minutes of silence. She was not online.
 
 Then a notification. *Thanks.* I expected more — something warmer, an opening. I was too stupid for more, but I would not let the chance slip.
 
