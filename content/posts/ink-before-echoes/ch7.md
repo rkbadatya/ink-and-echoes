@@ -12,7 +12,7 @@ draft: false
 
 Someone called my name. I woke up.
 
-It was just a dream.
+Just a dream. The same one, or a version of it — it had been coming back for months.
 
 In the dream there was a big house decorated with flowers and lights. My parents and Shreyash's parents sat in the drawing room. Children played. A baby cried and attention shifted from education to life. A girl — whose face I could never hold clearly enough to see — followed me to a room filled with gifts. She knew my name. She knew my birthday. She stood with an ease that felt like she had always been there.
 
