@@ -16,6 +16,14 @@ She wore a pink-white dress. Our eyes met briefly as I boarded. She looked away.
 
 After some days I sat just behind her. Her chunni drifted outside the window in the slow wind and the motion of the bus. She looked out at something I could not see, half her face covered by a handkerchief she held in a hand I had never touched. She seemed far away from the bus, from the road, from everyone on it. I did not have the courage to ask why.
 
+There was one day, a little later, when she sat one seat ahead instead. Her chunni drifted out the window again. This time, without entirely thinking about it, I spoke.
+
+"Excuse me — will you please keep your chunni inside the bus?"
+
+She turned slightly, adjusted it, looked forward again. Said nothing more.
+
+That was the only sentence I ever addressed directly to her in four years of college. Not a conversation. A single practical request about a scarf. She had not asked for anything more, and I had not offered it. But I had spoken, and she had heard, and for the rest of that ride I held onto the fact that my voice had existed in her direction at least once.
+
 Once she sat behind me with a friend. The sun burned through the glass. I closed the windows — sacrificing the wind I had liked — so they would not have to sit in the heat. Our eyes met for the tenth time by my count. I had been counting. I went home and could not explain to myself why I still remembered the first nine.
 
 I waited every evening for the next day, when I might receive that glance again. Till then, I had seen her smile twice. Both times accidentally. Both times enough.

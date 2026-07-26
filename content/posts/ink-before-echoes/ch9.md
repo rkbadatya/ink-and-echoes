@@ -8,9 +8,15 @@ categories:
 draft: false
 ---
 
+After the Facebook chat with Jinita, the remaining weeks of college had the texture of something winding quietly down. I messaged her once more, casual, nothing that named anything. She replied politely. Whatever she had decided to do with what she knew — tell Natasha, stay silent, carry it herself — she kept it to herself. The semester ended. Eighth semester began. The campus emptied in stages as placements took people away.
+
+I did not try again. I told myself there would be time. There was not.
+
+---
+
 It was not like other days.
 
-I had waited three years. Nevertheless of what happened in between, I remembered what she was worth to me. I had never talked with her properly. I did not know where she belonged. Still I was crazy about her.
+I had waited three years. Whatever had happened in between, I remembered what she was worth to me. I had never talked with her properly. I did not know where she belonged in the world outside college. Still I was here, still watching, still waiting for some version of myself that could say something real.
 
 I am not going to tell you about me or about her. I am making myself comfortable for what I am going to do — rather, what I will do at any cost.
 
@@ -30,29 +36,15 @@ She looked sweet, cute, beautiful, gorgeous — unlike the first day I saw her. 
 
 **Three years earlier**
 
-It was my third day at tuition. Rain all day. Roads full of mud and drain water. I enjoyed going to tuition those days. I entered CAREER PLUS quickly.
+It was my third day at tuition. Rain all day. Roads full of mud and drain water. I entered CAREER PLUS quickly. On the verandah outside, a girl in white top and black jeans sat waiting. I glanced and went inside. No intention to know her. She did not seem remarkable.
 
-On the verandah outside, a girl in white top and black jeans sat. I glanced and thought she must be early. I entered the lab where friends were drying themselves before the only fan. That was it. No intention to know her. She did not seem attractive.
+A few days later, the bus came. Someone looked at me. I glanced back — the same face, white dress this time, entirely different. I could not stop looking. She noticed and looked away.
 
-After semester vacation I prepared for a good semester: no absences, attentive in class, make friends. I failed some of those rules.
+I never recovered from that look.
 
-The bus came. Someone looked at me. I glanced back — a known face in white dress, like a goddess. I could not stop looking. She noticed and changed her sight.
+She was always with JP — Jinita Priyadarshini. They moved together everywhere: same branch, same tuition, same bus. When I looked in her direction and Jinita was beside her, both of them wondered whom I was looking at. I never clarified. I did not have the words.
 
-From that day my heart was not in my control. I waited for the next day to see her once. Incomplete. Thirsty with poisonous water. At home — mom cooking, brother studying — I was alone. I rarely shared secrets.
-
-I tried to hate her. Forgot my lab record. Got confused again. Decided to remain calm. Became a silent lover. She knew me. But she did not know me. Why would anyone bother among so many students?
-
-She was always with JP — Jinita Priyadarshini. When I looked thrice, our eyes met. Problem: when you look at someone with her friend beside her, both wonder whom you are looking at.
-
-One beautiful day she sat one seat ahead. Her chunni waved outside the bus window. I called, "Excuse me, will you please keep your chunni inside the bus?"
-
-That was our first conversation. Not ours — only mine.
-
-Many days passed. I found Jinita's profile on Facebook, searched through her friend list for Natasha's name. Nothing. She had no account — or none that I could reach.
-
-I told myself: *Facebook is for them who are not beautiful girls. She is so beautiful. She doesn't need it.* A saying I invented for satisfaction after failure. I even thought about sending Jinita a request, using her as a way in. Something stopped me — not courage, the opposite of it. The fear that a rejected request would make the whole thing real in a way I could not undo.
-
-So I stopped. I went back to watching from the bus. I told myself it would happen some other way.
+I searched for her on Facebook. She had no account, or none I could find. I told myself things a person tells himself after a dead search result and moved on — back to the bus, back to counting glances, back to waiting for some day that kept not arriving.
 
 And so on.
 
@@ -110,6 +102,14 @@ I had loved Natasha without speaking.
 
 Jinita had loved me without my knowing.
 
-And in the auditorium, between burst balloons and a wall clock counting down the end of college, all three of us learned the same lesson at once:
+I have thought about why she did it. She had known, by the end, that I liked Natasha. The Facebook chat had made that clear. She could have kept the letter. She could have decided the farewell was not the right place, or that the right place would never come, or that it was simply not worth it given what she already knew.
+
+She sent it anyway.
+
+I think she had written it before our conversation — before she confirmed what she already suspected. Or perhaps she wrote it after, and decided that carrying it into silence for the rest of her life was worse than knowing for certain. There is a particular kind of courage in confessing what you already know will not be returned. Not the courage anyone gives you credit for. Just the courage of saying the true thing before the last day closes.
+
+She deserved better than what that auditorium gave her. So did Natasha. So, probably, did I — though I had done the least to earn it.
+
+And in that auditorium, between burst balloons and a wall clock counting down the end of college, all three of us learned the same lesson at once:
 
 Some confessions arrive only after the train has already left the platform.
