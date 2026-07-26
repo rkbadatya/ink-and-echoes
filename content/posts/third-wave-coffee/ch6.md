@@ -10,7 +10,7 @@ draft: false
 
 We had left the café saying we would get lunch.
 
-"California Burrito chalega?" I asked.
+"Kuch Mexican chalega?" I asked.
 
 "Haan, chalo," she said.
 

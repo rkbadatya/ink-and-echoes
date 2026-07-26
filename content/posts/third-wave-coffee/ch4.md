@@ -112,7 +112,7 @@ Around that time I had a Shreya Ghoshal song on loop. "Rozana." I couldn't expla
 
 Badminton had become difficult to land by then. She was busy more often than available. Timings slipped. Plans dissolved. Each cancellation came with a reasonable reason, and each reason still left me looking for another excuse to see her. Two days before Thursday — on Tuesday morning, while the drink question was still sitting unanswered in our chat — I tried a different angle.
 
-**Me:** Dell XPS dekhne chalein kya mall mein? Central Mall side. Kabhi time ho toh.
+**Me:** Dell XPS dekhne chalein kya mall mein? Kabhi time ho toh.
 
 A failed attempt, if I was honest with myself. Not really about a laptop. Just another way of asking: can we meet for an hour without calling it badminton?
 
@@ -126,7 +126,7 @@ Then, while I was having lunch with colleagues in office, my phone rang. Nimrat.
 
 "Haan. Lunch break."
 
-"Okay… random question. Central Mall aa sakte ho kaam karne? Café se work."
+"Okay… random question. Mall aa sakte ho kaam karne? Café se work."
 
 I remembered an older conversation where she had casually asked whether I ever worked from cafés. At that time, I had said yes without thinking much about it. Now that old question had returned with context.
 

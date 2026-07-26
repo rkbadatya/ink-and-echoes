@@ -18,7 +18,7 @@ It was a perfectly reasonable, entirely platonic explanation. But hope is an und
 
 The real panic set in when I realized I didn't know what my actions were supposed to be. If it *was* a date, what was the protocol? Should I bring something?
 
-For a wild, embarrassing ten minutes on Wednesday night, I considered buying flowers. I even googled it, staring at photos of small, neat bouquets. *Too much. Definitely too much.* If I showed up to a Third Wave Coffee at eleven in the morning holding a bunch of lilies while she was trying to join a Skype call, I would look like a lunatic. It would tear down the wall of casual friendliness I had worked so hard to build.
+For a wild, embarrassing ten minutes on Wednesday night, I considered buying flowers. I even googled it, staring at photos of small, neat bouquets. *Too much. Definitely too much.* If I showed up to a café at eleven in the morning holding a bunch of lilies while she was trying to join a Skype call, I would look like a lunatic. It would tear down the wall of casual friendliness I had worked so hard to build.
 
 What do normal people even do in these situations? If I went completely empty-handed, it felt too cold—like I was just a colleague joining her for a meeting. I needed something in the middle. Something that didn't make my intentions obvious, but still carried a tiny bit of thought. Something funny, maybe? A weird bookmark? A particular pen?
 
@@ -136,7 +136,7 @@ And maybe I read it correctly. Maybe she didn't need me to compete. Maybe she ju
 
 At some point she spoke about office too.
 
-She explained her work-from-home setup as if it were the most normal arrangement in the world. She only had to go to the office five days a month. The rest of the time, she worked from wherever she wanted — home, a cousin's place, or a café like the one we were sitting in. That part made sense. Why she could suggest spending an entire Thursday working from Third Wave Coffee without it sounding impractical. Why her laptop was already open when I arrived. Why the day had felt possible at all. She also talked about how she had ended up in this company specifically.
+She explained her work-from-home setup as if it were the most normal arrangement in the world. She only had to go to the office five days a month. The rest of the time, she worked from wherever she wanted — home, a cousin's place, or a café like the one we were sitting in. That part made sense. Why she could suggest spending an entire Thursday working from a café without it sounding impractical. Why her laptop was already open when I arrived. Why the day had felt possible at all. She also talked about how she had ended up in this company specifically.
 
 Not because of a dramatic career move or a desperate job switch. She had chosen it deliberately — for the freedom it offered and for the team she had heard about before joining. People who worked without unnecessary drama. Managers who didn't breathe down your neck for being at home.
 
