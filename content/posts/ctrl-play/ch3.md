@@ -1,7 +1,7 @@
 ---
-title: 'Third Wave Coffee - Chapter 2'
+title: 'CTRL + PLAY - Chapter 3: Across the Net'
 description: Across the Net
-weight: 51
+weight: 12
 date: 2019-05-23
 categories:
   - story
@@ -14,7 +14,7 @@ I reached the venue without too many expectations. Until then, she was still jus
 
 The badminton court was already noisy when I entered. Shuttlecocks flew across multiple courts under harsh white lights. Shoes squeaked against the wooden flooring. Somewhere nearby, people were laughing loudly between games.
 
-And in the middle of all that noise, she was already there, getting ready near the court. For a moment, I forgot every sensible thought I had prepared on the drive there.
+And in the middle of all that noise, she was already there, getting ready near the court. For a moment, I forgot every sensible thought I had prepared on the ride there.
 
 Matching T-shirt. Matching track pants. Proper sports shoes. Everything clean, coordinated, intentional — the kind of person who belonged in places like this. And still, up close, she was more than that.
 
@@ -98,7 +98,7 @@ So I started explaining random things about what I did and why I was nearby — 
 
 "Maybe join a game sometime," I added, trying to sound casual.
 
-Nidhee had been listening. Then she looked at him, then at me, and said:
+Nimrat had been listening. Then she looked at him, then at me, and said:
 
 "Chalo."
 
@@ -108,9 +108,9 @@ It is strange how one casual word can rearrange your place in someone's evening 
 
 "Cool," I said. "See you. Bye."
 
-I smiled because I didn't know what else my face was supposed to do, and walked back toward my car.
+I smiled because I didn't know what else my face was supposed to do, and walked back toward my bike.
 
-While driving out, I noticed them walking toward a Thar parked nearby. And without knowing anything for sure, I made a quiet assumption in my head.
+While riding out, I noticed them walking toward a Thar parked nearby. And without knowing anything for sure, I made a quiet assumption in my head.
 
 Boyfriend. Or husband.
 

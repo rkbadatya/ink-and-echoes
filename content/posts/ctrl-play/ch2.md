@@ -1,7 +1,7 @@
 ---
-title: 'Third Wave Coffee - Chapter 1'
+title: 'CTRL + PLAY - Chapter 2: Before I Knew Her'
 description: Before I Knew Her
-weight: 50
+weight: 11
 date: 2019-05-23
 categories:
   - story
@@ -19,7 +19,7 @@ Not shouted. Not spoken in anger. Just said plainly, like a fact she had accepte
 
 The noise around us continued as if nothing had happened. Somewhere nearby, a pressure cooker whistled from a house across the street. A bike passed through the narrow road. Someone laughed in the distance. The world moved forward normally, refusing to pause for the small disasters happening inside people.
 
-I smiled. Not because it didn't hurt, but because some part of me had already expected it. And maybe that was the funny part. Because if someone had told me a few months earlier that a girl named Nidhee would someday say something like this to me, I would've laughed and moved on with my life.
+I smiled. Not because it didn't hurt, but because some part of me had already expected it. And maybe that was the funny part. Because if someone had told me a few months earlier that a girl named Nimrat would someday say something like this to me, I would've laughed and moved on with my life.
 
 That line belongs to a later day — one I have not reached yet in this story. What follows is where it began.
 
@@ -31,7 +31,7 @@ A boring evening. One of those days where you keep opening apps not because you 
 
 Then I saw her game: one slot left, no players had joined yet. I clicked without thinking much. Her profile opened.
 
-Nidhee.
+Nimrat.
 
 Badminton and swimming were listed there among her interests — the way people list things they do to unwind, not things they are trying to master. Another profile on Playo. Another stranger in sports shoes. Nothing that should have mattered.
 
@@ -77,7 +77,7 @@ Her number.
 
 It sounds stupid now. But at that moment, it felt strangely personal.
 
-People guard phone numbers carefully. Especially in cities where everyone is tired of random messages and unnecessary familiarity. I had seen enough profiles on Playo to know how things usually worked. Girls either avoided direct messages completely or replied with the bare minimum before disappearing. Nidhee herself later admitted that she normally ignored most messages she received there.
+People guard phone numbers carefully. Especially in cities where everyone is tired of random messages and unnecessary familiarity. I had seen enough profiles on Playo to know how things usually worked. Girls either avoided direct messages completely or replied with the bare minimum before disappearing. Nimrat herself later admitted that she normally ignored most messages she received there.
 
 Yet here was this girl I had never even met properly, sending me her number before we had played a single game together.
 

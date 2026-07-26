@@ -1,7 +1,7 @@
 ---
 title: 'Ink Before Echoes'
 description: B.Tech at PMEC — the years before the writing found readers, before the echoes came back.
-date: 2013-01-01
+date: 2010-08-01
 categories:
   - story
 cascade:

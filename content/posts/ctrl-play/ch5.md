@@ -1,7 +1,7 @@
 ---
-title: 'Third Wave Coffee - Chapter 4'
+title: 'CTRL + PLAY - Chapter 5: Unfinished Plans'
 description: Unfinished Plans
-weight: 53
+weight: 14
 date: 2019-05-23
 categories:
   - story
@@ -82,13 +82,13 @@ I sat with that for a moment. *Alone, to read.* The phrasing was so simple that 
 
 I said yes without thinking. Not because I had decided to go. Just because saying yes to her had become something my hands typed before my brain caught up. I didn't note it down. I didn't carry it through my day. I treated the agreement the way men sometimes treat invitations from women they're slightly distracted by — pleasantly, casually, weightlessly. Like the conversation itself had been the event. Like the actual showing-up was optional fine print.
 
-Later that same evening, a friend who had invited me earlier called me over to his place, and that quietly became the entire shape of my evening. Talk, food, the kind of unhurried hangout that erases any other plan you may or may not have agreed to a few hours ago. Nidhee and Crossword had drifted so far to the back of my mind that I had genuinely forgotten about both of them until my phone lit up.
+Later that same evening, a friend who had invited me earlier called me over to his place, and that quietly became the entire shape of my evening. Talk, food, the kind of unhurried hangout that erases any other plan you may or may not have agreed to a few hours ago. Nimrat and Crossword had drifted so far to the back of my mind that I had genuinely forgotten about both of them until my phone lit up.
 
 **Her:** Aa rahe ho?
 
 I stared at the message longer than I should have. I had not believed she was serious. That was the first honest thing my brain admitted to me. The second thing was worse — I had not even checked, in all those hours, whether she had actually meant it. I had taken her offer the way men so often take women's offers: as a sweet possibility rather than a real plan.
 
-My first instinct was internal — leave immediately, apologize, drive, show up late, salvage the evening somehow. *Abhi nikalta hoon,* my brain typed before my fingers did. But underneath that instinct sat a smaller, more cowardly calculation — I wanted to know if it was even worth the drive. I wanted to know if she would still be there by the time I arrived. So the message that actually left my phone looked nothing like the one I had drafted inside my head.
+My first instinct was internal — leave immediately, apologize, ride over, show up late, salvage the evening somehow. *Abhi nikalta hoon,* my brain typed before my fingers did. But underneath that instinct sat a smaller, more cowardly calculation — I wanted to know if it was even worth the ride. I wanted to know if she would still be there by the time I arrived. So the message that actually left my phone looked nothing like the one I had drafted inside my head.
 
 **Me:** Sorry, can't make it. I'm at a friend's place. Aap kab tak hain wahan?
 
@@ -120,7 +120,7 @@ A failed attempt, if I was honest with myself. Not really about laptops. Just an
 
 Another bahana. Or maybe she genuinely was busy. The problem was that my mind had stopped distinguishing between the two. I replied with something casual. *No worries. Some other time.* The way you respond when you don't want to admit you feel rejected by a sentence that small. By Tuesday afternoon, I had almost stopped expecting anything from any conversation with her.
 
-Then, while I was having lunch with colleagues in office, my phone rang. Nidhee. Completely unexpected.
+Then, while I was having lunch with colleagues in office, my phone rang. Nimrat. Completely unexpected.
 
 "Office mein ho?" she asked.
 

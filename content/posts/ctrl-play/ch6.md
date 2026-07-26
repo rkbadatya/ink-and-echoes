@@ -1,7 +1,7 @@
 ---
-title: 'Third Wave Coffee - Chapter 5'
+title: 'CTRL + PLAY - Chapter 6: The Reserved Seat'
 description: The Reserved Seat
-weight: 54
+weight: 15
 date: 2019-05-23
 categories:
   - story
@@ -44,7 +44,7 @@ At one point, I suggested we could go together.
 
 "Nahi," she said. Not rudely. Just directly. "Wahan milte hain."
 
-That small refusal stayed with me during the drive — not painfully, just enough to remind me that whatever this was inside my head, she was still maintaining her own boundaries naturally. By the time I reached the mall, I had already called her once because I couldn't properly find the café entrance.
+That small refusal stayed with me during the ride — not painfully, just enough to remind me that whatever this was inside my head, she was still maintaining her own boundaries naturally. By the time I reached the mall, I had already called her once because I couldn't properly find the café entrance.
 
 "Main andar hoon," she said. "Third Wave — gate ke andar right side."
 

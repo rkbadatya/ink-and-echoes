@@ -1,7 +1,7 @@
 ---
 title: 'Little Thoughts'
 description: Souvik at Mercedes-Benz — a full-stack developer caught between meetings, family worry, and the viral disease that changed everything.
-date: 2023-04-16
+date: 2020-03-01
 categories:
   - story
 cascade:

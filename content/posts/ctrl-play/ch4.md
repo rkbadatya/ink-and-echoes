@@ -1,14 +1,14 @@
 ---
-title: 'Third Wave Coffee - Chapter 3'
+title: 'CTRL + PLAY - Chapter 4: One Missing Sentence'
 description: One Missing Sentence
-weight: 52
+weight: 13
 date: 2019-05-23
 categories:
   - story
 draft: false
 ---
 
-After the first game, life returned to normal again. Work. Sleep. Meetings. Notifications. Traffic. Random weekends disappearing without permission. But somewhere in the middle of all that, Nidhee had quietly entered my routine. Not in any dramatic way.
+After the first game, life returned to normal again. Work. Sleep. Meetings. Notifications. Traffic. Random weekends disappearing without permission. But somewhere in the middle of all that, Nimrat had quietly entered my routine. Not in any dramatic way.
 
 A small intrusion. The kind no one warns you about — because it does not look like an intrusion at all.
 
@@ -64,7 +64,7 @@ She laughed once at how quickly the request had arrived. "YouTube pe hai. Ruko, 
 
 She actually pulled out her phone right there beside the pool. I tried to walk it back — *baad mein share kar dijiye, no hurry* — but she had already started scrolling and seemed determined to find it before letting the subject drift further. A minute later she sent me a link to her channel.
 
-I didn't open it then. Doing it right in front of her would have looked too eager. But that night, after I reached home and changed and pretended to read for a while, I opened every single video she had ever uploaded and watched them in order. The Nidhee in those videos was slightly younger, slightly more willing to be looked at. But underneath the cuts and the music and the small camera-trained smiles, the same quiet was there — the same steady eyes, the same not-quite-finished smile, the same way of holding her own attention long after the lens had moved on. I watched all of them. Then I closed the tab quickly, as if doing it fast made it less true that I had spent my night memorising fragments of a girl I had known for two badminton games.
+I didn't open it then. Doing it right in front of her would have looked too eager. But that night, after I reached home and changed and pretended to read for a while, I opened every single video she had ever uploaded and watched them in order. The Nimrat in those videos was slightly younger, slightly more willing to be looked at. But underneath the cuts and the music and the small camera-trained smiles, the same quiet was there — the same steady eyes, the same not-quite-finished smile, the same way of holding her own attention long after the lens had moved on. I watched all of them. Then I closed the tab quickly, as if doing it fast made it less true that I had spent my night memorising fragments of a girl I had known for two badminton games.
 
 *Inn aankhon se yeh bata, kitna main dekhoon tujhe.*
 *Reh jaati hai kuch kami, jitna bhi dekhoon tujhe.*
@@ -85,7 +85,7 @@ Just more human. Until then, she had mostly existed in fragments inside my head.
 
 And the moment someone stops being an idea, they start being a risk.
 
-But before all of that — before the pool, before the conversation — there was the drive. While driving toward the venue for the 2nd game in the evening, I noticed her walking on the side of the road some distance ahead. Maybe three hundred meters away from the court. For a second I slowed down automatically.
+But before all of that — before the pool, before the conversation — there was the ride. While riding toward the venue for the 2nd game in the evening, I noticed her walking on the side of the road some distance ahead. Maybe three hundred meters away from the court. For a second I slowed down automatically.
 
 Then I honked lightly so she would notice. She turned. Even from a distance, in ordinary clothes, walking like she had nowhere to hurry to, she looked unfairly composed. The evening sun caught the side of her face for a second and turned her skin warm — like honey held up to light. I rolled down the window.
 
@@ -101,11 +101,11 @@ She smiled politely.
 
 That was all. A normal answer. A completely reasonable answer. Yet the rejection landed with a weight it had no right to carry.
 
-Maybe because somewhere in my head, offering someone a lift belonged to a certain category of closeness. A quiet comfort between people.  Rakshita had never refused when I offered. But Nidhee was not Rakshita. And that realization mattered.
+Maybe because somewhere in my head, offering someone a lift belonged to a certain category of closeness. A quiet comfort between people.  Roopa had never refused when I offered. But Nimrat was not Roopa. And that realization mattered.
 
 She wasn't being cold. She was being honest about how little we knew each other yet. The cruel part was that honesty, when you are already half-attached, sounds almost exactly like rejection.
 
-Rakshita and I had years of familiarity behind our comfort. Shared history naturally removes hesitation. Nidhee barely knew me outside badminton courts and short conversations. To her, refusing the lift was probably the most ordinary thing in the world. But attraction has a dangerous habit of treating ordinary boundaries like personal disappointments. So I nodded, drove ahead, parked near the venue, and acted like the moment had not affected me at all.
+Roopa and I had years of familiarity behind our comfort. Shared history naturally removes hesitation. Nimrat barely knew me outside badminton courts and short conversations. To her, refusing the lift was probably the most ordinary thing in the world. But attraction has a dangerous habit of treating ordinary boundaries like personal disappointments. So I nodded, rode ahead, parked near the venue, and acted like the moment had not affected me at all.
 
 Even though it had. So we played again. The 2nd time the awkwardness was lighter. Not gone.
 
@@ -125,7 +125,7 @@ She couldn't make it. Disappointment feels irrational in situations like these. 
 
 Not the kind of excitement people openly admit to. Nothing dramatic. But one of those quiet moods where time moves slower because your mind keeps returning to the evening ahead. Work felt less irritating. Traffic looked manageable for once. Even the usual tiredness of the week seemed lighter because somewhere in the background of my mind was a simple thought: *I'm going to see her today.* I left early and was already close to the venue when my phone rang.
 
-Nidhee. For a second, I smiled before answering. "Hey."
+Nimrat. For a second, I smiled before answering. "Hey."
 
 "Hey… actually—" She paused. I knew that pause by then. "Work thoda extend ho gaya. I'm really sorry."
 
@@ -149,7 +149,7 @@ I checked mentally. "I don't think so. Two hours se pehle hi hota hai shayad. Ab
 
 "No issues," I said again, because I didn't know what else to say that wouldn't sound needy. "We'll play another time."
 
-As if I hadn't been waiting for the evening all day. As if I wasn't already a few minutes away from the court. As if disappointment was something mature people could simply switch off the moment a call ended. She said okay, thanked me once more, and hung up. The booking stayed. The court stayed. Only the two people who planned to meet never did. I remember sitting in my parked car for a few minutes after the call ended.
+As if I hadn't been waiting for the evening all day. As if I wasn't already a few minutes away from the court. As if disappointment was something mature people could simply switch off the moment a call ended. She said okay, thanked me once more, and hung up. The booking stayed. The court stayed. Only the two people who planned to meet never did. I remember sitting on my parked bike for a few minutes after the call ended.
 
 At one point I checked my phone again. Not for a message. Just for the shape of one that might have come.
 

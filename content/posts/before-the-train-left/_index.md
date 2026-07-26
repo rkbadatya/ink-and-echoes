@@ -1,7 +1,7 @@
 ---
 title: 'Before the Train Left'
 description: A story about a chance meeting on a railway platform that quietly changed everything.
-date: 2013-07-10
+date: 2010-08-01
 categories:
   - story
 cascade:

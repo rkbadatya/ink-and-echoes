@@ -1,7 +1,7 @@
 ---
-title: 'Third Wave Coffee - Chapter 7'
+title: 'CTRL + PLAY - Chapter 8: Looking Through Glass'
 description: Looking Through Glass
-weight: 56
+weight: 17
 date: 2019-05-23
 categories:
   - story
@@ -204,7 +204,7 @@ Finally, I said I should leave.
 
 "Mujhe nikalna padega," I said. "Thoda late ho jayega."
 
-"Okay," she said. "Drive safe."
+"Okay," she said. "Ride safe."
 
 "Yeah. You'll stay here?"
 

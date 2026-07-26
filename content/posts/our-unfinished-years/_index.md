@@ -1,7 +1,7 @@
 ---
 title: 'Our Unfinished Years'
 description: A story about growing up, stubborn choices, and the quiet ways life rearranges itself.
-date: 2011-03-12
+date: 2008-06-01
 categories:
   - story
 cascade:

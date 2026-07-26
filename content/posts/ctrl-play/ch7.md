@@ -1,7 +1,7 @@
 ---
-title: 'Third Wave Coffee - Chapter 6'
+title: 'CTRL + PLAY - Chapter 7: Caste, Stories, and Expressions'
 description: Caste, Stories, and Expressions
-weight: 55
+weight: 16
 date: 2019-05-23
 categories:
   - story
@@ -86,7 +86,7 @@ Maybe she was trying to understand me differently now. Not as a badminton contac
 
 Or worse. Maybe she was realizing that I understood her differently. That I had listened to her talk about him not simply as a friend offering sympathy, but as a man storing every detail with dangerous care. There's a particular discomfort that appears when two people slowly become aware of emotional imbalance without directly discussing it.
 
-I think that was the first time I felt traces of it between us. So I started talking more casually again. I told her about Rakshita. Not romantically.
+I think that was the first time I felt traces of it between us. So I started talking more casually again. I told her about Roopa. Not romantically.
 
 Never romantically. Just a friend I had known for years — the kind of friendship where comfort exists without explanation. Where offering a lift never feels like a gesture. Where silence is not awkward because history has already done the work. Random stories about her. Small observations.
 
@@ -102,9 +102,9 @@ I wondered what that meant to her. Probably nothing. She was the kind of person 
 
 I couldn't. Not inside my head, at least. On the outside, I matched her ease. Reached for the same plate as if it meant nothing. But underneath that, my mind had already filed the moment as evidence of something I had no right to claim.
 
-While she ate, I started scrolling through my phone, searching for a photo of Rakshita to show her. It felt like a natural thing to do after talking about her — putting a face to the stories. But before I could find one, Nidhee looked up and said, "Khana kha lo pehle." Not rudely. Just practically. The way you redirect someone who is doing something unnecessary while the food gets cold.
+While she ate, I started scrolling through my phone, searching for a photo of Roopa to show her. It felt like a natural thing to do after talking about her — putting a face to the stories. But before I could find one, Nimrat looked up and said, "Khana kha lo pehle." Not rudely. Just practically. The way you redirect someone who is doing something unnecessary while the food gets cold.
 
-I put the phone down and ate. Only later did the moment replay differently. She hadn't said *show me after eating.* She hadn't said *haan dikhao.* She had simply moved past it — as if seeing what Rakshita looked like was not something she needed or wanted. Whether that was disinterest or something quieter — the kind of not-wanting-to-see that comes when you'd rather not put a face to someone who matters to the person sitting across from you — I couldn't tell. Maybe she was just hungry. Maybe it was simpler than everything I was making it.
+I put the phone down and ate. Only later did the moment replay differently. She hadn't said *show me after eating.* She hadn't said *haan dikhao.* She had simply moved past it — as if seeing what Roopa looked like was not something she needed or wanted. Whether that was disinterest or something quieter — the kind of not-wanting-to-see that comes when you'd rather not put a face to someone who matters to the person sitting across from you — I couldn't tell. Maybe she was just hungry. Maybe it was simpler than everything I was making it.
 
 But I noticed.
 
@@ -218,7 +218,7 @@ He quoted a number. She didn't flinch, but she didn't reach for her wallet eithe
 
 "Koi extra discount milega?" I asked, almost as a joke. "Agar main gift kar raha hoon toh?"
 
-The rep smiled politely. Nidhee turned toward me sharply — not angry, but alert.
+The rep smiled politely. Nimrat turned toward me sharply — not angry, but alert.
 
 "Kya kar rahe ho tum?" she said under her breath, half amused, half warning.
 
