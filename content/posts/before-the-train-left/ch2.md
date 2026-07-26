@@ -6,7 +6,6 @@ date: 2013-07-10
 categories:
   - story
 draft: false
-aliases: ["/posts/before-the-train-left-ch2/"]
 ---
 
 There are moments in life when you hear your own words and instantly wish they belonged to someone else.

@@ -6,7 +6,6 @@ date: 2015-04-01
 categories:
   - story
 draft: false
-aliases: ["/posts/the-boy-behind-the-words-ch1/"]
 ---
 
 April 2014.

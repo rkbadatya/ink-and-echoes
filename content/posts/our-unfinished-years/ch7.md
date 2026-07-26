@@ -6,7 +6,6 @@ date: 2011-03-12
 categories:
   - story
 draft: false
-aliases: ["/posts/our-unfinished-years-ch7/"]
 ---
 
 Some memories don't return through thought.

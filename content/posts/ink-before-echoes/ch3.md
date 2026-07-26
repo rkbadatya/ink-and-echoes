@@ -6,7 +6,6 @@ date: 2013-01-01
 categories:
   - story
 draft: false
-aliases: ["/posts/ink-before-echoes-ch3/"]
 ---
 
 I loved her from the core of my heart without her knowledge.

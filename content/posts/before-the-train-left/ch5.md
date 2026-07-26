@@ -6,7 +6,6 @@ date: 2013-07-10
 categories:
   - story
 draft: false
-aliases: ["/posts/before-the-train-left-ch5/"]
 ---
 
 Some nights do not allow sleep.

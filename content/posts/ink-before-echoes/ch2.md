@@ -6,7 +6,6 @@ date: 2013-01-01
 categories:
   - story
 draft: false
-aliases: ["/posts/ink-before-echoes-ch2/"]
 ---
 
 I have never had a best friend.

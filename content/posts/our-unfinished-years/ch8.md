@@ -6,7 +6,6 @@ date: 2011-03-12
 categories:
   - story
 draft: false
-aliases: ["/posts/our-unfinished-years-ch8/"]
 ---
 
 Every story of youth has a point where it quietly changes direction.

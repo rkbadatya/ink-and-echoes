@@ -6,7 +6,6 @@ date: 2011-03-12
 categories:
   - story
 draft: false
-aliases: ["/posts/our-unfinished-years-ch6/"]
 ---
 
 Some do it with discipline. Some with silence. And some with a strange sense of humor that pretends to be tradition.

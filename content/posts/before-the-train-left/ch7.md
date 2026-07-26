@@ -6,7 +6,6 @@ date: 2013-07-10
 categories:
   - story
 draft: false
-aliases: ["/posts/before-the-train-left-ch7/"]
 ---
 
 Some moments are too small for the world to notice.

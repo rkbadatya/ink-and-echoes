@@ -1,18 +1,17 @@
 ---
-title: CTRL + PLAY
-description: A modern, tech-inspired title symbolizing Reyan’s shift from pause (bench) to play (action/fun/life).
+title: 'CTRL + PLAY - Chapter 1: The First Meet'
+description: Reyan's shift from pause (bench) to play (action/fun/life).
+weight: 10
 date: 2014-04-14
-weight: 1
 categories:
   - story
   - diary
 draft: false
-aliases: ["/posts/the-first-meet/"]
 ---
 
 **"How about a cup of coffee this evening?"** she asked enthusiastically.
 
-**"Sure, why not? I’ve got no plans today. And you know, during bench time, we have a lot of 'not-to-do' work,"** he joked, and both laughed, exchanging a knowing glance.
+**"Sure, why not? I've got no plans today. And you know, during bench time, we have a lot of 'not-to-do' work,"** he joked, and both laughed, exchanging a knowing glance.
 
 They said their goodbyes and returned to their respective groups of friends.
 
@@ -26,25 +25,25 @@ Reyan had just completed two months of GFT training at Accenture and was still a
 
 Reyan lip-read the rest. He smiled. So did she.
 
-While Reyan was stuck in the limbo of “what next” after training, Pallavi was immersed in writing Java service classes—building models from database data and posting them to the UI. Their lives had taken different paces.
+While Reyan was stuck in the limbo of "what next" after training, Pallavi was immersed in writing Java service classes—building models from database data and posting them to the UI. Their lives had taken different paces.
 
-It was still hard for Reyan to accept that he was no longer at home. He missed waking up to his mother’s voice, the comfort of homemade meals, and the peace of falling asleep on her lap.
+It was still hard for Reyan to accept that he was no longer at home. He missed waking up to his mother's voice, the comfort of homemade meals, and the peace of falling asleep on her lap.
 
-The initial days had passed in a blur—shuttling from one BDC to another. The novelty wore off quickly. What once felt exciting now seemed monotonous. His close friends had either gotten projects or relocated. Loneliness crept in. Most of his days were spent playing table tennis, browsing Accenture’s internal sites, or aimlessly staring at his screen. WhatsApp chats became his only escape.
+The initial days had passed in a blur—shuttling from one BDC to another. The novelty wore off quickly. What once felt exciting now seemed monotonous. His close friends had either gotten projects or relocated. Loneliness crept in. Most of his days were spent playing table tennis, browsing Accenture's internal sites, or aimlessly staring at his screen. WhatsApp chats became his only escape.
 
-**"Why don’t you go do something fun?"** Surbhi suggested over chat.
+**"Why don't you go do something fun?"** Surbhi suggested over chat.
 
-**"I don’t know. I don’t think anything interests me anymore,"** he replied.
+**"I don't know. I don't think anything interests me anymore,"** he replied.
 
 **"Have you tried the Xbox games?"**
 
-**"Xbox? I didn’t even know we had an Xbox in the recreation room,"** he texted back, skeptical.
+**"Xbox? I didn't even know we had an Xbox in the recreation room,"** he texted back, skeptical.
 
 **"Seriously?! You dumb bookworm. When are you going to explore life outside of your precious textbooks?"**
 
-**"Please don’t start your lecture again. Just tell me where it is,"** he replied, trying to dodge the banter.
+**"Please don't start your lecture again. Just tell me where it is,"** he replied, trying to dodge the banter.
 
-**"BDC7C. Go there. Have fun. I’ve got to run. Catch you after 9. Bye!"**
+**"BDC7C. Go there. Have fun. I've got to run. Catch you after 9. Bye!"**
 
 **"Okay. BaBye,"** he typed back, packed his bag, and headed to the elevator.
 
@@ -57,7 +56,7 @@ He hit the power button. *Click.* And there it was—his new escape from boredom
 It took him a while to figure out the controls, but once he did, there was no stopping. He played. And played. And played.
 
 **"Why am I not getting tired?"** he wondered.
-Lunch time arrived. He didn’t want to leave, but hunger insisted. He rushed through lunch, treating every minute spent away from the console as wasted time. Within four minutes, he was back.
+Lunch time arrived. He didn't want to leave, but hunger insisted. He rushed through lunch, treating every minute spent away from the console as wasted time. Within four minutes, he was back.
 
 This time, he tried boxing. First the tutorials. Then the matches.
 
@@ -73,4 +72,3 @@ An hour passed. He was drenched in sweat, despite the AC. Yet he felt no fatigue
 He turned around.
 
 And smiled.
-

@@ -6,7 +6,6 @@ categories:
   - story
 draft: false
 weight: 12
-aliases: ["/posts/a-note-to-self/"]
 ---
 
 I have everything I wanted, and still something feels missing.

@@ -6,7 +6,6 @@ date: 2011-03-12
 categories:
   - story
 draft: false
-aliases: ["/posts/our-unfinished-years-ch5/"]
 ---
 
 If the house I stayed in felt loud and unpredictable, the college campus felt like its opposite in every possible way.

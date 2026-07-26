@@ -6,7 +6,6 @@ date: 2013-01-01
 categories:
   - story
 draft: false
-aliases: ["/posts/ink-before-echoes-ch6/"]
 ---
 
 Who thought life would take such a turn?

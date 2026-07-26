@@ -7,7 +7,6 @@ categories:
   - diary
 draft: false
 weight: 16
-aliases: ["/posts/once-again/"]
 ---
 
 The holidays are over.

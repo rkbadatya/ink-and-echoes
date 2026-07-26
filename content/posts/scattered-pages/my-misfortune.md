@@ -7,7 +7,6 @@ categories:
   - diary
 draft: false
 weight: 15
-aliases: ["/posts/my-misfortune/"]
 ---
 
 They were there, but their existence changed nothing.

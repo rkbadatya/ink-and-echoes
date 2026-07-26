@@ -6,7 +6,6 @@ date: 2015-04-03
 categories:
   - story
 draft: false
-aliases: ["/posts/the-boy-behind-the-words-ch3/"]
 ---
 
 By then, he had quietly become my oxygen.

@@ -6,7 +6,6 @@ date: 2013-01-01
 categories:
   - story
 draft: false
-aliases: ["/posts/ink-before-echoes-ch4/"]
 ---
 
 It is all because of you, Phailin.

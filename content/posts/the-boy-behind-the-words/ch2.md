@@ -6,7 +6,6 @@ date: 2015-04-02
 categories:
   - story
 draft: false
-aliases: ["/posts/the-boy-behind-the-words-ch2/"]
 ---
 
 Friendship is a strange thing. It doesn't always happen in person; sometimes, it happens one SMS at a time, hidden under a thin hostel blanket.

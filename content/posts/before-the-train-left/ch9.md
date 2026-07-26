@@ -6,7 +6,6 @@ date: 2013-07-10
 categories:
   - story
 draft: false
-aliases: ["/posts/before-the-train-left-ch9/"]
 ---
 
 There are many modern ways to suffer.

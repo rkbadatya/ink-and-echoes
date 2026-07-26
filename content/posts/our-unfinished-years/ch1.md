@@ -6,7 +6,6 @@ date: 2011-03-12
 categories:
   - story
 draft: false
-aliases: ["/posts/our-unfinished-years-ch1/"]
 ---
 
 Being a nerd has its advantages. You do not have to worry much about the world around you, because books become your world. Knowledge feels more important than people, marks more important than memories, and success more important than everything else. But being a nerd has its price too—you often miss the most beautiful parts of life while staring at pages.

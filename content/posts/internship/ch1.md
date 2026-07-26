@@ -1,11 +1,11 @@
 ---
-title: "Short Story: Internship"
-description: "Short Story: Internship"
+title: 'Internship - Chapter 1: The Whiteboard'
+description: Avik types. Tasha erases. Valentine's Day asks a question.
+weight: 10
 date: 2023-04-16
 categories:
   - story
 draft: false
-aliases: ["/posts/short-story-internship/"]
 ---
 
 Characters:

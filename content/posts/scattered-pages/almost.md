@@ -7,7 +7,6 @@ categories:
   - diary
 draft: false
 weight: 11
-aliases: ["/posts/almost/"]
 ---
 
 There are things you spend days rehearsing in your head — conversations you will start, gestures you will make, words you will finally say out loud. You plan every detail until the scene becomes so vivid that you mistake the rehearsal for the real thing.

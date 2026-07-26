@@ -6,7 +6,6 @@ date: 2011-03-12
 categories:
   - story
 draft: false
-aliases: ["/posts/our-unfinished-years-ch3/"]
 ---
 
 I reached State Bank Square and ended up waiting longer than I expected.

@@ -6,7 +6,6 @@ date: 2011-03-12
 categories:
   - story
 draft: false
-aliases: ["/posts/our-unfinished-years-ch2/"]
 ---
 
 Before classes began, I prepared myself for the reason I had come to Berhampur.

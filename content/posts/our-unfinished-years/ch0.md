@@ -1,12 +1,12 @@
 ---
-title: The Way I Was
+title: 'Our Unfinished Years - Chapter 0: The Way I Was'
 description: Childhood through tenth class — the sweetest son, the debate prizes, the rented houses, and the boy engineering replaced.
-date: 2023-04-16
+weight: 39
+date: 2011-03-12
 categories:
   - story
   - diary
 draft: false
-aliases: ["/posts/i-wasnt-like-what-i-am-today/", "/posts/the-way-i-was/"]
 ---
 
 I wasn't the same as I am today.

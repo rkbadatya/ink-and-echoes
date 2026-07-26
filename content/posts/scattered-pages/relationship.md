@@ -7,7 +7,6 @@ categories:
   - diary
 draft: false
 weight: 17
-aliases: ["/posts/relationship/"]
 ---
 
 Relationship.

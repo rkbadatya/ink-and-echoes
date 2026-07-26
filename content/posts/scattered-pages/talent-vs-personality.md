@@ -7,7 +7,6 @@ categories:
   - diary
 draft: false
 weight: 19
-aliases: ["/posts/talent-vs-personality/"]
 ---
 
 Today someone told me that my friends — girls — like me because of my talent, not my personality.

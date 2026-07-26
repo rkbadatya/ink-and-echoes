@@ -1,11 +1,11 @@
 ---
-title: Ashes of the Truth
-description: Ashes of the Truth
+title: 'Ashes of the Truth - Chapter 1: The Paper'
+description: She burned the truth. Someone kept a copy.
+weight: 10
 date: 2012-09-01
 categories:
   - story
 draft: false
-aliases: ["/posts/her-revenge/"]
 ---
 
 There was only one choice for her — to destroy that piece of paper into bits and pieces. She was prepared to go to any extent to hide the truth. To anyone else, it was just a sheet of paper, but to her, it was everything — a life that could be ruined or a family that could be preserved.

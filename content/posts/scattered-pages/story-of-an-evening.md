@@ -7,7 +7,6 @@ categories:
   - diary
 draft: false
 weight: 18
-aliases: ["/posts/story-of-an-evening/"]
 ---
 
 It is a fine afternoon.

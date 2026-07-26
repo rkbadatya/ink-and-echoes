@@ -6,7 +6,6 @@ date: 2011-03-12
 categories:
   - story
 draft: false
-aliases: ["/posts/our-unfinished-years-ch4/"]
 ---
 
 I spent the afternoon settling into my brother's room.
